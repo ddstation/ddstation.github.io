@@ -28,7 +28,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>9,900원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19346765493&vendorItemId=86460122537)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19346765493&vendorItemId=86460122537)
 
 ---
 
@@ -45,7 +46,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>4,680원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095101&vendorItemId=72389153443)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095101&vendorItemId=72389153443)
 
 ---
 
@@ -62,7 +64,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>29,170원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=335977109&vendorItemId=3824294564)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=335977109&vendorItemId=3824294564)
 
 ---
 
@@ -79,7 +82,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>4,450원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=13747029958&vendorItemId=4936222022)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=13747029958&vendorItemId=4936222022)
 
 ---
 
@@ -96,7 +100,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>62,180원</span>
-- 리뷰수: 946  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284366019&traceid=V0-153&itemId=18179382911&vendorItemId=85328448930)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284366019&traceid=V0-153&itemId=18179382911&vendorItemId=85328448930)
 
 ---
 
@@ -113,7 +118,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>35,500원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284366019&traceid=V0-153&itemId=3479129243&vendorItemId=71465437451)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284366019&traceid=V0-153&itemId=3479129243&vendorItemId=71465437451)
 
 ---
 
@@ -130,7 +136,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>3,780원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095102&vendorItemId=72389153467)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095102&vendorItemId=72389153467)
 
 ---
 
@@ -147,7 +154,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>11,400원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=226000492&traceid=V0-153&itemId=715928754&vendorItemId=4812838475)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=226000492&traceid=V0-153&itemId=715928754&vendorItemId=4812838475)
 
 ---
 
@@ -164,7 +172,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 즉시할인가 46%  159,000   원
 - 가격: <span style='color:red'>5,400원</span>
-- 리뷰수: 14  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5309101612&traceid=V0-153&itemId=7687093185&vendorItemId=74977375673)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5309101612&traceid=V0-153&itemId=7687093185&vendorItemId=74977375673)
 
 ---
 
@@ -181,7 +190,8 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>13,260원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=19813082&traceid=V0-153&itemId=78863531&vendorItemId=70061638509)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=19813082&traceid=V0-153&itemId=78863531&vendorItemId=70061638509)
 
 ---
 **USB 구매 시 주의 사항**

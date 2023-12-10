@@ -39,7 +39,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>128,840원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 ---
 
@@ -56,7 +57,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>97,960원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7300099500&traceid=V0-153&itemId=18678767116&vendorItemId=85812988785)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7300099500&traceid=V0-153&itemId=18678767116&vendorItemId=85812988785)
 
 ---
 
@@ -73,7 +75,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>75,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=77937063047)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=77937063047)
 
 ---
 
@@ -90,7 +93,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>87,620원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=87925597274)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=87925597274)
 
 ---
 
@@ -107,7 +111,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>476,600원</span>
-- 리뷰수: 946  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7693095457&traceid=V0-153&itemId=20577641784&vendorItemId=87695769593)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7693095457&traceid=V0-153&itemId=20577641784&vendorItemId=87695769593)
 
 ---
 
@@ -124,7 +129,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>163,000원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
 
 ---
 
@@ -141,7 +147,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>113,000원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -158,7 +165,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>30,500원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=86751665854)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=86751665854)
 
 ---
 
@@ -175,7 +183,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 즉시할인가 46%  159,000   원
 - 가격: <span style='color:red'>199,000원</span>
-- 리뷰수: 14  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588453&vendorItemId=72715533224)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588453&vendorItemId=72715533224)
 
 ---
 
@@ -192,7 +201,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>63,250원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 ---
 **SSD 구매 시 주의점**

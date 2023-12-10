@@ -35,7 +35,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>1,207,820원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6680612603&traceid=V0-153&itemId=15404115321&vendorItemId=82624116755)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6680612603&traceid=V0-153&itemId=15404115321&vendorItemId=82624116755)
 
 ---
 
@@ -52,7 +53,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>1,096,480원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6579535579&traceid=V0-153&itemId=14800616809&vendorItemId=82040393624)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6579535579&traceid=V0-153&itemId=14800616809&vendorItemId=82040393624)
 
 ---
 
@@ -69,7 +71,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>599,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4550542605&traceid=V0-153&itemId=5523436705&vendorItemId=72822838803)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4550542605&traceid=V0-153&itemId=5523436705&vendorItemId=72822838803)
 
 ---
 
@@ -86,7 +89,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>1,128,800원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6680612599&traceid=V0-153&itemId=18641392086&vendorItemId=85776491704)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6680612599&traceid=V0-153&itemId=18641392086&vendorItemId=85776491704)
 
 ---
 
@@ -103,7 +107,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>4,837,000원</span>
-- 리뷰수: 946  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7105253588&traceid=V0-153&itemId=17746488061&vendorItemId=84911054073)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7105253588&traceid=V0-153&itemId=17746488061&vendorItemId=84911054073)
 
 ---
 
@@ -120,7 +125,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>4,300,000원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6333617818&traceid=V0-153&itemId=13254803035&vendorItemId=80512562281)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6333617818&traceid=V0-153&itemId=13254803035&vendorItemId=80512562281)
 
 ---
 
@@ -137,7 +143,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>813,600원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2304452092&traceid=V0-153&itemId=3972008346&vendorItemId=71956362413)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2304452092&traceid=V0-153&itemId=3972008346&vendorItemId=71956362413)
 
 ---
 
@@ -154,7 +161,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>1,220,200원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6680612601&traceid=V0-153&itemId=15404115319&vendorItemId=82624116764)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6680612601&traceid=V0-153&itemId=15404115319&vendorItemId=82624116764)
 
 ---
 
@@ -171,7 +179,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 즉시할인가 46%  159,000   원
 - 가격: <span style='color:red'>529,000원</span>
-- 리뷰수: 14  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7629780080&traceid=V0-153&itemId=20246859220&vendorItemId=71473967470)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7629780080&traceid=V0-153&itemId=20246859220&vendorItemId=71473967470)
 
 ---
 
@@ -188,7 +197,8 @@ LG 건조기는 다양한 용량과 색상을 제공하여 소비자의 선택�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>1,292,960원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7262753623&traceid=V0-153&itemId=18503303400&vendorItemId=85642467897)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7262753623&traceid=V0-153&itemId=18503303400&vendorItemId=85642467897)
 
 ---
 **LG 건조기 구매 시 주의 사항**

@@ -45,7 +45,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>1,887,000원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7389889714&traceid=V0-153&itemId=19059391472&vendorItemId=86182358190)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7389889714&traceid=V0-153&itemId=19059391472&vendorItemId=86182358190)
 
 ---
 
@@ -62,7 +63,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>1,648,330원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7413485582&traceid=V0-153&itemId=19214170179&vendorItemId=86331183389)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7413485582&traceid=V0-153&itemId=19214170179&vendorItemId=86331183389)
 
 ---
 
@@ -79,7 +81,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>1,244,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7462755073&traceid=V0-153&itemId=19455362361&vendorItemId=84518108492)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7462755073&traceid=V0-153&itemId=19455362361&vendorItemId=84518108492)
 
 ---
 
@@ -96,7 +99,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>2,127,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685612593&traceid=V0-153&itemId=18111574559&vendorItemId=85263180006)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685612593&traceid=V0-153&itemId=18111574559&vendorItemId=85263180006)
 
 ---
 
@@ -113,7 +117,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>2,100,000원</span>
-- 리뷰수: 946  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7325501542&traceid=V0-153&itemId=15965062957&vendorItemId=83171283593)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7325501542&traceid=V0-153&itemId=15965062957&vendorItemId=83171283593)
 
 ---
 
@@ -130,7 +135,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>1,099,000원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4692708274&traceid=V0-153&itemId=13608105543&vendorItemId=81397022550)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4692708274&traceid=V0-153&itemId=13608105543&vendorItemId=81397022550)
 
 ---
 
@@ -147,7 +153,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>1,600,000원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148497&traceid=V0-153&itemId=20660237250&vendorItemId=86517583676)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148497&traceid=V0-153&itemId=20660237250&vendorItemId=86517583676)
 
 ---
 
@@ -164,7 +171,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>842,890원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685487426&traceid=V0-153&itemId=19221013658&vendorItemId=86337786363)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685487426&traceid=V0-153&itemId=19221013658&vendorItemId=86337786363)
 
 ---
 
@@ -181,7 +189,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 즉시할인가 46%  159,000   원
 - 가격: <span style='color:red'>2,100,000원</span>
-- 리뷰수: 14  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7016902053&traceid=V0-153&itemId=17265694501&vendorItemId=84436919764)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7016902053&traceid=V0-153&itemId=17265694501&vendorItemId=84436919764)
 
 ---
 
@@ -198,7 +207,8 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>2,417,000원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7181283325&traceid=V0-153&itemId=18111653454&vendorItemId=85263255548)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7181283325&traceid=V0-153&itemId=18111653454&vendorItemId=85263255548)
 
 ---
 **LG 그램 구매시 주의점**

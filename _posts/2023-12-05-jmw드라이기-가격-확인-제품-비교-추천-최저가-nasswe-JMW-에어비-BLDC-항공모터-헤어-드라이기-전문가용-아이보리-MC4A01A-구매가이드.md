@@ -39,7 +39,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>61,180원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7728131739&traceid=V0-153&itemId=19078926204&vendorItemId=81456802545)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7728131739&traceid=V0-153&itemId=19078926204&vendorItemId=81456802545)
 
 ---
 
@@ -56,7 +57,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>65,900원</span>
-- 리뷰수: 2838  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=57974997&vendorItemId=3090910429)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=57974997&vendorItemId=3090910429)
 
 ---
 
@@ -73,7 +75,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>59,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7280280575&traceid=V0-153&itemId=18585910708&vendorItemId=80480829716)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7280280575&traceid=V0-153&itemId=18585910708&vendorItemId=80480829716)
 
 ---
 
@@ -90,7 +93,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: <span style='color:red'>84,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1679879839&traceid=V0-153&itemId=7630312034&vendorItemId=74921516992)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1679879839&traceid=V0-153&itemId=7630312034&vendorItemId=74921516992)
 
 ---
 
@@ -107,7 +111,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>86,000원</span>
-- 리뷰수: 946  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7683963120&traceid=V0-153&itemId=20530426740&vendorItemId=87436688675)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7683963120&traceid=V0-153&itemId=20530426740&vendorItemId=87436688675)
 
 ---
 
@@ -124,7 +129,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>48,000원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2274146060&traceid=V0-153&itemId=3901584261&vendorItemId=71886172737)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2274146060&traceid=V0-153&itemId=3901584261&vendorItemId=71886172737)
 
 ---
 
@@ -141,7 +147,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>61,000원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6758155032&traceid=V0-153&itemId=15830237018&vendorItemId=83041926630)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6758155032&traceid=V0-153&itemId=15830237018&vendorItemId=83041926630)
 
 ---
 
@@ -158,7 +165,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>81,000원</span>
-- 리뷰수: 16417  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=159270509&traceid=V0-153&itemId=457438425&vendorItemId=4135149083)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=159270509&traceid=V0-153&itemId=457438425&vendorItemId=4135149083)
 
 ---
 
@@ -175,7 +183,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 즉시할인가 46%  159,000   원
 - 가격: <span style='color:red'>59,800원</span>
-- 리뷰수: 14  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6773957542&traceid=V0-153&itemId=15912284406&vendorItemId=85729320688)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6773957542&traceid=V0-153&itemId=15912284406&vendorItemId=85729320688)
 
 ---
 
@@ -192,7 +201,8 @@ JMW 드라이기는 뛰어난 성능과 안전성을 갖추고 있으면서도, 
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>65,900원</span>
-- 리뷰수: 2547  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=18122019&vendorItemId=3090910427)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=18122019&vendorItemId=3090910427)
 
 ---
 **JMW 드라이기 구매시 주의점**

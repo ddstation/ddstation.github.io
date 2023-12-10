@@ -35,7 +35,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 즉시할인가 68%  269,000   원
 - 가격: <span style='color:red'>19,800원</span>
-- 리뷰수: 1118  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001555&vendorItemId=85114170895)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001555&vendorItemId=85114170895)
 
 ---
 
@@ -52,7 +53,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 43  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
 
 ---
 
@@ -69,7 +71,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 쿠폰할인가 95%  98,000   원
 - 가격: <span style='color:red'>21,900원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
 
 ---
 
@@ -86,7 +89,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>17,550원</span>
-- 리뷰수: 13  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714832170&traceid=V0-153&itemId=20689343672&vendorItemId=87760986927)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714832170&traceid=V0-153&itemId=20689343672&vendorItemId=87760986927)
 
 ---
 
@@ -103,7 +107,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 즉시할인가 35%  169,900   원
 - 가격: <span style='color:red'>13,900원</span>
-- 리뷰수: 302  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915719&vendorItemId=86916983704)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915719&vendorItemId=86916983704)
 
 ---
 
@@ -120,7 +125,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 즉시할인가 40%  50,000   원
 - 가격: <span style='color:red'>28,380원</span>
-- 리뷰수: 33  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082727&vendorItemId=74102003655)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082727&vendorItemId=74102003655)
 
 ---
 
@@ -137,7 +143,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>17,550원</span>
-- 리뷰수: 212  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721825809&traceid=V0-153&itemId=20726021346&vendorItemId=87796720849)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721825809&traceid=V0-153&itemId=20726021346&vendorItemId=87796720849)
 
 ---
 
@@ -154,7 +161,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>17,550원</span>
-- 리뷰수: 37  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721954603&traceid=V0-153&itemId=20726875237&vendorItemId=87797568311)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721954603&traceid=V0-153&itemId=20726875237&vendorItemId=87797568311)
 
 ---
 
@@ -171,7 +179,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 즉시할인가 44%  289,000   원
 - 가격: <span style='color:red'>29,250원</span>
-- 리뷰수: 253  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082728&vendorItemId=74102003641)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082728&vendorItemId=74102003641)
 
 ---
 
@@ -188,7 +197,8 @@ MLB 모자는 팀의 역사와 전통을 담고 있는 아이템으로, 소장 �
 
 - 할인율과 원래가격: 즉시할인가 39%  38,000   원
 - 가격: <span style='color:red'>20,650원</span>
-- 리뷰수: 56  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721958191&traceid=V0-153&itemId=20726891427&vendorItemId=87797584138)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721958191&traceid=V0-153&itemId=20726891427&vendorItemId=87797584138)
 
 ---
 **MLB 모자 구매 시 주의할 점**

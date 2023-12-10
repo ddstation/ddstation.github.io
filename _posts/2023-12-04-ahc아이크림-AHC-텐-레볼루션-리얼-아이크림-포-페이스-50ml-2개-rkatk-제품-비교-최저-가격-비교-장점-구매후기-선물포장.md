@@ -39,7 +39,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>17,930원</span>
-- 리뷰수: 389  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6935965567&traceid=V0-153&itemId=19942789073&vendorItemId=87041995040)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6935965567&traceid=V0-153&itemId=19942789073&vendorItemId=87041995040)
 
 ---
 
@@ -56,7 +57,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>62,490원</span>
-- 리뷰수: 389  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7025260464&traceid=V0-153&itemId=17318063254&vendorItemId=85669327528)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7025260464&traceid=V0-153&itemId=17318063254&vendorItemId=85669327528)
 
 ---
 
@@ -73,7 +75,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 23%  12,900   원
 - 가격: <span style='color:red'>38,780원</span>
-- 리뷰수: 2447  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7025822011&traceid=V0-153&itemId=18715323448&vendorItemId=85669217917)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7025822011&traceid=V0-153&itemId=18715323448&vendorItemId=85669217917)
 
 ---
 
@@ -90,7 +93,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>24,970원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7027553593&traceid=V0-153&itemId=17331914482&vendorItemId=85669574088)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7027553593&traceid=V0-153&itemId=17331914482&vendorItemId=85669574088)
 
 ---
 
@@ -107,7 +111,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 71%  219,000   원
 - 가격: <span style='color:red'>87,200원</span>
-- 리뷰수: 79  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7152846025&traceid=V0-153&itemId=17986101873&vendorItemId=84556127412)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7152846025&traceid=V0-153&itemId=17986101873&vendorItemId=84556127412)
 
 ---
 
@@ -124,7 +129,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 43%  48,000   원
 - 가격: <span style='color:red'>24,970원</span>
-- 리뷰수: 588  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6935965567&traceid=V0-153&itemId=17971504388&vendorItemId=85790734915)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6935965567&traceid=V0-153&itemId=17971504388&vendorItemId=85790734915)
 
 ---
 
@@ -141,7 +147,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: <span style='color:red'>71,690원</span>
-- 리뷰수: 90  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6299671477&traceid=V0-153&itemId=12826397024&vendorItemId=87513015768)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6299671477&traceid=V0-153&itemId=12826397024&vendorItemId=87513015768)
 
 ---
 
@@ -158,7 +165,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 83%  120,000   원
 - 가격: <span style='color:red'>15,240원</span>
-- 리뷰수: 2447  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6408123314&traceid=V0-153&itemId=4058838457&vendorItemId=72042945220)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6408123314&traceid=V0-153&itemId=4058838457&vendorItemId=72042945220)
 
 ---
 
@@ -175,7 +183,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 14%  35,000   원
 - 가격: <span style='color:red'>29,900원</span>
-- 리뷰수: 13  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7368560771&traceid=V0-153&itemId=19002003128&vendorItemId=84377411924)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7368560771&traceid=V0-153&itemId=19002003128&vendorItemId=84377411924)
 
 ---
 
@@ -192,7 +201,8 @@ AHC 아이크림은 다른 고가의 아이크림에 비해 합리적인 가격�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>81,800원</span>
-- 리뷰수: 11  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7305533063&traceid=V0-153&itemId=18704137311&vendorItemId=87199578821)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7305533063&traceid=V0-153&itemId=18704137311&vendorItemId=87199578821)
 
 ---
 **AHC 아이크림 구매 시 주의점**
