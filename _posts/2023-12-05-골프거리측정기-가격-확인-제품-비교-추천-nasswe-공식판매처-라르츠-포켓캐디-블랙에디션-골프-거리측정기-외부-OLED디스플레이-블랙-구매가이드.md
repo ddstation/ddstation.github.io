@@ -33,7 +33,7 @@ pin: true
 
 ## 1. [공식판매처] 라르츠 포켓캐디 블랙에디션 골프 거리측정기 외부 OLED디스플레이, 블랙
 
-![골프거리측정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/56a7/5276d4f6fbfdffcd806379ac6b55f974371a7a1f38ee33e1e580e154cf49.jpg)
+[![골프거리측정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/56a7/5276d4f6fbfdffcd806379ac6b55f974371a7a1f38ee33e1e580e154cf49.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7716082860&traceid=V0-153&itemId=20695781762&vendorItemId=86469722670)
 
 
 👍 [[공식판매처] 라르츠 포켓캐디 블랙에디션 골프 거리측정기 외부 OLED디스플레이, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7716082860&traceid=V0-153&itemId=20695781762&vendorItemId=86469722670) 👌 
@@ -51,7 +51,7 @@ pin: true
 
 ## 2. 투힘 버디버디 골프 레이저 거리 속도 측정기 TB-01, 혼합색상
 
-![골프거리측정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3647392313892513-e68af9ff-8493-4447-b455-47bd9583fc45.jpg)
+[![골프거리측정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3647392313892513-e68af9ff-8493-4447-b455-47bd9583fc45.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5393746797&traceid=V0-153&itemId=8050651735&vendorItemId=75339179833)
 
 
 👍 [투힘 버디버디 골프 레이저 거리 속도 측정기 TB-01, 혼합색상 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5393746797&traceid=V0-153&itemId=8050651735&vendorItemId=75339179833) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. 베리어 골프 거리 측정기 S600AG-LL, 블랙
 
-![골프거리측정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9bda/57636b005ca1a4bd6476f7a9ae7cf48eb45cf1d5ba10c49e3838c1bbed7d.jpg)
+[![골프거리측정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9bda/57636b005ca1a4bd6476f7a9ae7cf48eb45cf1d5ba10c49e3838c1bbed7d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6081121928&traceid=V0-153&itemId=11273514417&vendorItemId=81927728463)
 
 
 👍 [베리어 골프 거리 측정기 S600AG-LL, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6081121928&traceid=V0-153&itemId=11273514417&vendorItemId=81927728463) 👌 
@@ -87,7 +87,7 @@ pin: true
 
 ## 4. LE6 야외 소형 usb 충전식 골프 레이저 거리 속도 측정기 탑재 진동알림 자동 전원 차단 슬로프 기능, LE6*1
 
-![골프거리측정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/41ed/31cab119838133cea4b498a015f8a39c6cede9553e734b54b924ccd8b652.jpg)
+[![골프거리측정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/41ed/31cab119838133cea4b498a015f8a39c6cede9553e734b54b924ccd8b652.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7637386472&traceid=V0-153&itemId=20283546952&vendorItemId=87391830507)
 
 
 👍 [LE6 야외 소형 usb 충전식 골프 레이저 거리 속도 측정기 탑재 진동알림 자동 전원 차단 슬로프 기능, LE6*1 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7637386472&traceid=V0-153&itemId=20283546952&vendorItemId=87391830507) 👌 
@@ -105,7 +105,7 @@ pin: true
 
 ## 5. 2024년형 핀더뷰+ 초소형 미니 골프거리측정기 전용케이스, 1.핀더뷰+(White)
 
-![골프거리측정기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5f4c/c2e5dcb8ef8cc4eebb0b47d01e1d2e077b3966aeb9cf2b4e0bf79efaddb9.png)
+[![골프거리측정기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5f4c/c2e5dcb8ef8cc4eebb0b47d01e1d2e077b3966aeb9cf2b4e0bf79efaddb9.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714926672&traceid=V0-153&itemId=20690124800&vendorItemId=87597433063)
 
 
 👍 [2024년형 핀더뷰+ 초소형 미니 골프거리측정기 전용케이스, 1.핀더뷰+(White) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714926672&traceid=V0-153&itemId=20690124800&vendorItemId=87597433063) 👌 
@@ -123,7 +123,7 @@ pin: true
 
 ## 6. 2023년 핀더뷰2 초소형 119g 미니 골프 거리 측정기 전용 케이스 포함, 1.핀더뷰2(White)
 
-![골프거리측정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/442e/e76486c349c1e14959f4f7142561d0035351149c6d0cbccfb0463024f185.png)
+[![골프거리측정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/442e/e76486c349c1e14959f4f7142561d0035351149c6d0cbccfb0463024f185.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7682171136&traceid=V0-153&itemId=20521729014&vendorItemId=87722865010)
 
 
 👍 [2023년 핀더뷰2 초소형 119g 미니 골프 거리 측정기 전용 케이스 포함, 1.핀더뷰2(White) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7682171136&traceid=V0-153&itemId=20521729014&vendorItemId=87722865010) 👌 
@@ -141,7 +141,7 @@ pin: true
 
 ## 7. 아이나비 SPORTS EQ1 초소형 골프 레이저 거리측정기, 화이트
 
-![골프거리측정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1758421072773550-c9336138-1034-407e-9673-65323d57f815.jpg)
+[![골프거리측정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1758421072773550-c9336138-1034-407e-9673-65323d57f815.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6503799367&traceid=V0-153&itemId=14332327494&vendorItemId=81576915355)
 
 
 👍 [아이나비 SPORTS EQ1 초소형 골프 레이저 거리측정기, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6503799367&traceid=V0-153&itemId=14332327494&vendorItemId=81576915355) 👌 
@@ -159,7 +159,7 @@ pin: true
 
 ## 8. [보상판매] [본사정품] 파인캐디 UPL5 mini 레이저 골프거리측정기, UPL5 mini BLACK
 
-![골프거리측정기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6fbc/e0f2c8adac0cd9ff69a3fe98d59cde65171bf5644fc7cf5c1c076e1d3224.jpg)
+[![골프거리측정기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6fbc/e0f2c8adac0cd9ff69a3fe98d59cde65171bf5644fc7cf5c1c076e1d3224.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7610605306&traceid=V0-153&itemId=20155403004&vendorItemId=87248202145)
 
 
 👍 [[보상판매] [본사정품] 파인캐디 UPL5 mini 레이저 골프거리측정기, UPL5 mini BLACK <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7610605306&traceid=V0-153&itemId=20155403004&vendorItemId=87248202145) 👌 
@@ -177,7 +177,7 @@ pin: true
 
 ## 9. 골프버디 aim L11 레이저 골프 거리측정기, 화이트, aimL11
 
-![골프거리측정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9511939848051425-00ebf4e0-c94e-41a0-9a96-b34d77373735.jpg)
+[![골프거리측정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9511939848051425-00ebf4e0-c94e-41a0-9a96-b34d77373735.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6109326813&traceid=V0-153&itemId=11503743875&vendorItemId=78778942015)
 
 
 👍 [골프버디 aim L11 레이저 골프 거리측정기, 화이트, aimL11 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6109326813&traceid=V0-153&itemId=11503743875&vendorItemId=78778942015) 👌 
@@ -195,7 +195,7 @@ pin: true
 
 ## 10. 베리어 골프 거리 측정기 S600AG-LL, 화이트
 
-![골프거리측정기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/46a7/44723855e48a334d832edcda80083f28c4ddbf5f2bebb05339471b1834df.jpg)
+[![골프거리측정기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/46a7/44723855e48a334d832edcda80083f28c4ddbf5f2bebb05339471b1834df.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6081121928&traceid=V0-153&itemId=13518437900&vendorItemId=81927728455)
 
 
 👍 [베리어 골프 거리 측정기 S600AG-LL, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6081121928&traceid=V0-153&itemId=13518437900&vendorItemId=81927728455) 👌 

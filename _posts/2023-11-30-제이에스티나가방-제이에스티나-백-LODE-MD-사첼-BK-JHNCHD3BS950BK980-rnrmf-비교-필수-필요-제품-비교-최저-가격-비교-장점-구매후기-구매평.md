@@ -31,7 +31,7 @@ pin: true
 
 ## 1. [제이에스티나 백] LODE MD 사첼 BK (JHNCHD3BS950BK980)
 
-![제이에스티나가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/10be/739a05ed65ef97201da4c3c4ca33709b86d17f31c439f90fa35bf7e8b27d.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/10be/739a05ed65ef97201da4c3c4ca33709b86d17f31c439f90fa35bf7e8b27d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7248184522&traceid=V0-153&itemId=18431663755&vendorItemId=85573174633)
 
 
 👍 [[제이에스티나 백] LODE MD 사첼 BK (JHNCHD3BS950BK980) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7248184522&traceid=V0-153&itemId=18431663755&vendorItemId=85573174633) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. [제이에스티나 백][BEST 추천] JOELLE FALLIN MINI 크로스 BK (JHNCHE2BS831BK010)
 
-![제이에스티나가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3c3b/4100355a6a9eec2c71f03cc6fbd1bcc23b2359dca088e1656441cb566497.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3c3b/4100355a6a9eec2c71f03cc6fbd1bcc23b2359dca088e1656441cb566497.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709511120&traceid=V0-153&itemId=20662332317&vendorItemId=86693775165)
 
 
 👍 [[제이에스티나 백][BEST 추천] JOELLE FALLIN MINI 크로스 BK (JHNCHE2BS831BK010) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709511120&traceid=V0-153&itemId=20662332317&vendorItemId=86693775165) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. [제이에스티나 백] RUBY SM크로스 BK (JHNCHE1BF408BK050)
 
-![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1e7e/fbe4374c45b23ab2f5a7712a9a13f10192125341bf875477a54c99ad4607.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1e7e/fbe4374c45b23ab2f5a7712a9a13f10192125341bf875477a54c99ad4607.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5654050433&traceid=V0-153&itemId=9261352093&vendorItemId=86694214957)
 
 
 👍 [[제이에스티나 백] RUBY SM크로스 BK (JHNCHE1BF408BK050) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5654050433&traceid=V0-153&itemId=9261352093&vendorItemId=86694214957) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. [제이에스티나 백][BEST 추천] JOELLE MUAH MD 사첼 BK (JHNCHD1BS940BK980)
 
-![제이에스티나가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6539/07265e12a1cfd31006e641c442d8ced41200cd47cf4878aa96057d36eae1.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6539/07265e12a1cfd31006e641c442d8ced41200cd47cf4878aa96057d36eae1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4805423828&traceid=V0-153&itemId=6174728192&vendorItemId=73452525050)
 
 
 👍 [[제이에스티나 백][BEST 추천] JOELLE MUAH MD 사첼 BK (JHNCHD1BS940BK980) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4805423828&traceid=V0-153&itemId=6174728192&vendorItemId=73452525050) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. [제이에스티나 백] TIA 카드지갑 BK (JSTESF2BS410BK010)
 
-![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/69f0/c1355c04f67576e7e192cf69808053a121b15c3ce981c16245a16c749d7d.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/69f0/c1355c04f67576e7e192cf69808053a121b15c3ce981c16245a16c749d7d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6267603846&traceid=V0-153&itemId=12799294500&vendorItemId=80065332000)
 
 
 👍 [[제이에스티나 백] TIA 카드지갑 BK (JSTESF2BS410BK010) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6267603846&traceid=V0-153&itemId=12799294500&vendorItemId=80065332000) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. [제이에스티나 백] SARAH MD EW 쇼퍼백 (블랙) (JHNEHC0BF072BK980)
 
-![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e7a6/20c57a2b635f34bdd9e5adc9bd032e86f713ca202a427b8f325a5a05f5df.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e7a6/20c57a2b635f34bdd9e5adc9bd032e86f713ca202a427b8f325a5a05f5df.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1852191802&traceid=V0-153&itemId=3148459198&vendorItemId=71091742351)
 
 
 👍 [[제이에스티나 백] SARAH MD EW 쇼퍼백 (블랙) (JHNEHC0BF072BK980) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1852191802&traceid=V0-153&itemId=3148459198&vendorItemId=71091742351) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. [제이에스티나 백][BEST 추천] JOELLE QUILTING MD 체인숄더백 (JHNCHA9AF701BK010)
 
-![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7084/3a31fc6dd59e46e9c43b798b37d1f2da4609c805cca15d075ea5bcc300e2.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7084/3a31fc6dd59e46e9c43b798b37d1f2da4609c805cca15d075ea5bcc300e2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4534706758&traceid=V0-153&itemId=5481403179&vendorItemId=70332950746)
 
 
 👍 [[제이에스티나 백][BEST 추천] JOELLE QUILTING MD 체인숄더백 (JHNCHA9AF701BK010) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4534706758&traceid=V0-153&itemId=5481403179&vendorItemId=70332950746) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. [제이에스티나 백][BEST 추천] ILLY LG 쇼퍼 BK (JHNCHC3BS330BK980)
 
-![제이에스티나가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6da9/f52af3f77cef196d396bba4ba9cec6956bc099318de34d465b49eed19d9a.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6da9/f52af3f77cef196d396bba4ba9cec6956bc099318de34d465b49eed19d9a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7060393088&traceid=V0-153&itemId=17504348771&vendorItemId=84671655674)
 
 
 👍 [[제이에스티나 백][BEST 추천] ILLY LG 쇼퍼 BK (JHNCHC3BS330BK980) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7060393088&traceid=V0-153&itemId=17504348771&vendorItemId=84671655674) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. [제이에스티나 백] DEAR MD 크로스 BK (JHNCHE3BS958BK980)
 
-![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1487/b3a6c4174718b6c9d12ef927ccf6fe8d5ac41e51516844ed0b2d89df0641.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1487/b3a6c4174718b6c9d12ef927ccf6fe8d5ac41e51516844ed0b2d89df0641.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7138341231&traceid=V0-153&itemId=17916884341&vendorItemId=85079540295)
 
 
 👍 [[제이에스티나 백] DEAR MD 크로스 BK (JHNCHE3BS958BK980) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7138341231&traceid=V0-153&itemId=17916884341&vendorItemId=85079540295) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. [제이에스티나 백][BEST 추천] DEAR MD 크로스 BK (JHNCHE3BS958BK980)
 
-![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1487/b3a6c4174718b6c9d12ef927ccf6fe8d5ac41e51516844ed0b2d89df0641.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1487/b3a6c4174718b6c9d12ef927ccf6fe8d5ac41e51516844ed0b2d89df0641.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7138342682&traceid=V0-153&itemId=17916889760&vendorItemId=85079545882)
 
 
 👍 [[제이에스티나 백][BEST 추천] DEAR MD 크로스 BK (JHNCHE3BS958BK980) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7138342682&traceid=V0-153&itemId=17916889760&vendorItemId=85079545882) 👌 

@@ -35,7 +35,7 @@ pin: true
 
 ## 1. 마켓비 SIGTAG 유아식탁의자 + SIGTAG 유아트레이 하이체어 세트, 화이트
 
-![하이체어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4693410725581950-368cac58-5358-43e0-ab5b-36f9bc273acf.jpg)
+[![하이체어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4693410725581950-368cac58-5358-43e0-ab5b-36f9bc273acf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2423337&traceid=V0-153&itemId=11154337&vendorItemId=3016793350)
 
 
 👍 [마켓비 SIGTAG 유아식탁의자 + SIGTAG 유아트레이 하이체어 세트, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2423337&traceid=V0-153&itemId=11154337&vendorItemId=3016793350) 👌 
@@ -53,7 +53,7 @@ pin: true
 
 ## 2. NEW 맥시코시 네스타 식탁의자 하이체어+베이비세트+트레이 세트 아기 이유식의자 유아 신생아 성인까지, 선택1 네추럴우드
 
-![하이체어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5fcc/b3b71f3900e6b1ded60c2212e4df9d0bfd0ce99d9d8494654cf83d286a09.png)
+[![하이체어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5fcc/b3b71f3900e6b1ded60c2212e4df9d0bfd0ce99d9d8494654cf83d286a09.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7450124624&traceid=V0-153&itemId=19393216658&vendorItemId=86505430706)
 
 
 👍 [NEW 맥시코시 네스타 식탁의자 하이체어+베이비세트+트레이 세트 아기 이유식의자 유아 신생아 성인까지, 선택1 네추럴우드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7450124624&traceid=V0-153&itemId=19393216658&vendorItemId=86505430706) 👌 
@@ -71,7 +71,7 @@ pin: true
 
 ## 3. 아가드 유아용 아이슬라이드 하이체어, 베이지
 
-![하이체어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2019/06/24/3042113378/b22f9660-d3e6-4bef-9960-ca8e01cb551a.jpg)
+[![하이체어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2019/06/24/3042113378/b22f9660-d3e6-4bef-9960-ca8e01cb551a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6321594&traceid=V0-153&itemId=28232251&vendorItemId=3042113378)
 
 
 👍 [아가드 유아용 아이슬라이드 하이체어, 베이지 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6321594&traceid=V0-153&itemId=28232251&vendorItemId=3042113378) 👌 
@@ -89,7 +89,7 @@ pin: true
 
 ## 4. 본베베 유아용 멀티레벨Z 하이체어 식탁의자, Noble Beige
 
-![하이체어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a0e3/e5d4c098a2a21ea35c8c40e4f2f3ade308e45a5cd3afe26aa9d9310c7f01.jpg)
+[![하이체어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a0e3/e5d4c098a2a21ea35c8c40e4f2f3ade308e45a5cd3afe26aa9d9310c7f01.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276179399&traceid=V0-153&itemId=18567573756&vendorItemId=86327412218)
 
 
 👍 [본베베 유아용 멀티레벨Z 하이체어 식탁의자, Noble Beige <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276179399&traceid=V0-153&itemId=18567573756&vendorItemId=86327412218) 👌 
@@ -107,7 +107,7 @@ pin: true
 
 ## 5. 유아용 스탠드 하이체어 원목 아기식탁의자 이유식 아기 식당 카페 유아의자, 아이케리 네추럴
 
-![하이체어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6a86/17a77080755c07586ac4b24d07dad4e9a6f63ba0cb0dd45e8760236bd825.jpg)
+[![하이체어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6a86/17a77080755c07586ac4b24d07dad4e9a6f63ba0cb0dd45e8760236bd825.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6576989162&traceid=V0-153&itemId=14785828713&vendorItemId=83370201355)
 
 
 👍 [유아용 스탠드 하이체어 원목 아기식탁의자 이유식 아기 식당 카페 유아의자, 아이케리 네추럴 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6576989162&traceid=V0-153&itemId=14785828713&vendorItemId=83370201355) 👌 
@@ -125,7 +125,7 @@ pin: true
 
 ## 6. 하나리빙 유아용 원목 식탁의자, 네츄럴
 
-![하이체어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/6x2rpcpu/c0054911a3e143db927ff50e4c9e6a08.jpg)
+[![하이체어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/6x2rpcpu/c0054911a3e143db927ff50e4c9e6a08.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7151469254&traceid=V0-153&itemId=17980244775&vendorItemId=85137101602)
 
 
 👍 [하나리빙 유아용 원목 식탁의자, 네츄럴 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7151469254&traceid=V0-153&itemId=17980244775&vendorItemId=85137101602) 👌 
@@ -143,7 +143,7 @@ pin: true
 
 ## 7. 아크미 모네 하이체어 아기식탁의자, 모네 하이체어 베이지
 
-![하이체어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2aac/169a3c2f99babd89195ae0e8d5ef3747c0ac03d4617782eb17d141d4855d.jpg)
+[![하이체어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2aac/169a3c2f99babd89195ae0e8d5ef3747c0ac03d4617782eb17d141d4855d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6495998663&traceid=V0-153&itemId=14281038271&vendorItemId=81526024126)
 
 
 👍 [아크미 모네 하이체어 아기식탁의자, 모네 하이체어 베이지 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6495998663&traceid=V0-153&itemId=14281038271&vendorItemId=81526024126) 👌 
@@ -161,7 +161,7 @@ pin: true
 
 ## 8. 아가드 토스비 아기 식탁의자 하이체어 버튼형, 크림화이트
 
-![하이체어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/ljkucnv6/d8668fe283fd4f0f86b6512477e1c790.jpg)
+[![하이체어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/ljkucnv6/d8668fe283fd4f0f86b6512477e1c790.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4589843284&traceid=V0-153&itemId=5641245882&vendorItemId=72940267926)
 
 
 👍 [아가드 토스비 아기 식탁의자 하이체어 버튼형, 크림화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4589843284&traceid=V0-153&itemId=5641245882&vendorItemId=72940267926) 👌 
@@ -179,7 +179,7 @@ pin: true
 
 ## 9. 네이쳐러브메레 시그니처 라운지 하이 유아 식탁의자, 02 샌드베이지
 
-![하이체어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/12/10/2/d0b303c0-65ba-4634-9330-4016f618f00c.jpg)
+[![하이체어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/12/10/2/d0b303c0-65ba-4634-9330-4016f618f00c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7329496329&traceid=V0-153&itemId=18814522539&vendorItemId=85945007890)
 
 
 👍 [네이쳐러브메레 시그니처 라운지 하이 유아 식탁의자, 02 샌드베이지 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7329496329&traceid=V0-153&itemId=18814522539&vendorItemId=85945007890) 👌 
@@ -197,7 +197,7 @@ pin: true
 
 ## 10. 베네베네 멀티 4in1 부스터 하이체어, 아이보리
 
-![하이체어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/7372529472452585-48a8a354-99ba-44c7-8e6c-05197806348e.jpg)
+[![하이체어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/7372529472452585-48a8a354-99ba-44c7-8e6c-05197806348e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6226095985&traceid=V0-153&itemId=12486572382&vendorItemId=79755296641)
 
 
 👍 [베네베네 멀티 4in1 부스터 하이체어, 아이보리 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6226095985&traceid=V0-153&itemId=12486572382&vendorItemId=79755296641) 👌 

@@ -31,7 +31,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 1. 사파 충전식 포터블 무선 스탠딩 블루투스 CD플레이어, 화이트, SCD100
 
-![cd플레이어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4698486813135235-cc971792-3b26-40af-8947-9e12ef6c6bf9.jpg)
+[![cd플레이어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4698486813135235-cc971792-3b26-40af-8947-9e12ef6c6bf9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251707727&traceid=V0-153&itemId=18448134519&vendorItemId=81459590729)
 
 
 👍 [사파 충전식 포터블 무선 스탠딩 블루투스 CD플레이어, 화이트, SCD100 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251707727&traceid=V0-153&itemId=18448134519&vendorItemId=81459590729) 👌 
@@ -49,7 +49,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 2. 에듀플레이어 벽걸이 CD플레이어, NEW EA30, 화이트
 
-![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4332043739311754-9a5d9f6d-aaca-4e11-a6ec-c6779aa6fc1a.jpg)
+[![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4332043739311754-9a5d9f6d-aaca-4e11-a6ec-c6779aa6fc1a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
 
 
 👍 [에듀플레이어 벽걸이 CD플레이어, NEW EA30, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797) 👌 
@@ -67,7 +67,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 3. 인비오 휴대폰 무선충전 시계 라디오 CD플레이어, IV-CD200W, 인비오 IV-CD200W 화이트
 
-![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/xkqgptq5/a7fddc0187dd41c4b318bd320a40124d.jpg)
+[![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/xkqgptq5/a7fddc0187dd41c4b318bd320a40124d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
 
 
 👍 [인비오 휴대폰 무선충전 시계 라디오 CD플레이어, IV-CD200W, 인비오 IV-CD200W 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760) 👌 
@@ -85,7 +85,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 4. 에듀플레이어 NEW EA10 CD플레이어 MP3CDP 블루투스cd플레이어 블루투스 5.0 FM라디오 2023년 4월출시
 
-![cd플레이어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6609/26c3a5d3aca87b55ba55a4e5fb00685ad74b544f41165728723798a3d23e.jpg)
+[![cd플레이어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6609/26c3a5d3aca87b55ba55a4e5fb00685ad74b544f41165728723798a3d23e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7713537767&traceid=V0-153&itemId=20682995887&vendorItemId=86213607442)
 
 
 👍 [에듀플레이어 NEW EA10 CD플레이어 MP3CDP 블루투스cd플레이어 블루투스 5.0 FM라디오 2023년 4월출시 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7713537767&traceid=V0-153&itemId=20682995887&vendorItemId=86213607442) 👌 
@@ -103,7 +103,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 5. 인사이디 휴대용 무선 LED 무드등 블루투스 턴테이블 베이지, IBT-Retro Light(베이지)
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/506650623421063-a199c758-1e83-4402-8dd0-33d7e81375f1.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/506650623421063-a199c758-1e83-4402-8dd0-33d7e81375f1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5830036362&traceid=V0-153&itemId=6600354462&vendorItemId=76626200129)
 
 
 👍 [인사이디 휴대용 무선 LED 무드등 블루투스 턴테이블 베이지, IBT-Retro Light(베이지) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5830036362&traceid=V0-153&itemId=6600354462&vendorItemId=76626200129) 👌 
@@ -121,7 +121,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 6. 림스테일 USB 3.0 DVD RW 멀티 외장형 ODD + C타입 젠더 세트, LM-19(BK)
 
-![cd플레이어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3756661787201767-7f261701-b9c1-44da-bbf8-41e00ad48e06.jpg)
+[![cd플레이어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3756661787201767-7f261701-b9c1-44da-bbf8-41e00ad48e06.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=8509758865&vendorItemId=75797263610)
 
 
 👍 [림스테일 USB 3.0 DVD RW 멀티 외장형 ODD + C타입 젠더 세트, LM-19(BK) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=8509758865&vendorItemId=75797263610) 👌 
@@ -139,7 +139,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 7. 인비오 블루투스 CD 플레이어, IV-CD100
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/05/14/11/0/b575b86e-1701-4e72-8506-50336cfd9465.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/05/14/11/0/b575b86e-1701-4e72-8506-50336cfd9465.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442)
 
 
 👍 [인비오 블루투스 CD 플레이어, IV-CD100 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442) 👌 
@@ -157,7 +157,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 8. 코비 댕댕이 블루투스 CD플레이어, BTCD10, 화이트
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/05/24/10/9/402f5107-5541-48db-bb05-de4f29be9294.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/05/24/10/9/402f5107-5541-48db-bb05-de4f29be9294.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205)
 
 
 👍 [코비 댕댕이 블루투스 CD플레이어, BTCD10, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205) 👌 
@@ -175,7 +175,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 9. 롯데알미늄 블루투스 MP3-CD 플레이어 카세트, Pingky-770, 혼합색상
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0151/9d130c88196b9fda355ef2d4fdfec0fb39152e09d4d4fa7c32170023bfdc.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0151/9d130c88196b9fda355ef2d4fdfec0fb39152e09d4d4fa7c32170023bfdc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193381230&traceid=V0-153&itemId=8909701488&vendorItemId=84530685881)
 
 
 👍 [롯데알미늄 블루투스 MP3-CD 플레이어 카세트, Pingky-770, 혼합색상 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193381230&traceid=V0-153&itemId=8909701488&vendorItemId=84530685881) 👌 
@@ -193,7 +193,7 @@ CD 플레이어는 이러한 장점들로 인해 오랫동안 음악 감상 애�
 
 ## 10. [SHAOMI] KECAG 블루투스 데스크탑 CD플레이어 유선버전, 블루
 
-![cd플레이어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d589/ff7c34b4cb07d17c85cfc9634f76bcbfce28375bccfb2feeb16e13da9a65.jpg)
+[![cd플레이어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d589/ff7c34b4cb07d17c85cfc9634f76bcbfce28375bccfb2feeb16e13da9a65.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7053184286&traceid=V0-153&itemId=19586213645&vendorItemId=86763515805)
 
 
 👍 [[SHAOMI] KECAG 블루투스 데스크탑 CD플레이어 유선버전, 블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7053184286&traceid=V0-153&itemId=19586213645&vendorItemId=86763515805) 👌 

@@ -20,7 +20,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 1. 구스페리 USB 2.0 메모리 카드 무광블랙, 128GB
 
-![usb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/03/18/9/12315612-3786-4f19-bf33-62ceb940b574.jpg)
+[![usb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/03/18/9/12315612-3786-4f19-bf33-62ceb940b574.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19346765493&vendorItemId=86460122537)
 
 
 👍 [구스페리 USB 2.0 메모리 카드 무광블랙, 128GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19346765493&vendorItemId=86460122537) 👌 
@@ -38,7 +38,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 2. [샌디스크] USB메모리, 32GB
 
-![usb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d35d/bc0efa2c2c5a80d9aa108b1622cd1fbcc25967e04bdb508890bb7816bfb9.jpg)
+[![usb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d35d/bc0efa2c2c5a80d9aa108b1622cd1fbcc25967e04bdb508890bb7816bfb9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095101&vendorItemId=72389153443)
 
 
 👍 [[샌디스크] USB메모리, 32GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095101&vendorItemId=72389153443) 👌 
@@ -56,7 +56,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 3. 삼성전자 USB 3.1 Flash Drive BAR Plus MUF-128BE3/APC, 128GB
 
-![usb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/629034327491761-d3a3dd54-0b33-4354-8686-d39d2babcb2e.jpg)
+[![usb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/629034327491761-d3a3dd54-0b33-4354-8686-d39d2babcb2e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=335977109&vendorItemId=3824294564)
 
 
 👍 [삼성전자 USB 3.1 Flash Drive BAR Plus MUF-128BE3/APC, 128GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=335977109&vendorItemId=3824294564) 👌 
@@ -74,7 +74,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 4. [샌디스크] USB메모리, 16GB
 
-![usb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/images/2019/02/21/15/9/a3025450-64dc-468e-a49f-1ebf1a08d7cb.jpg)
+[![usb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/images/2019/02/21/15/9/a3025450-64dc-468e-a49f-1ebf1a08d7cb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=13747029958&vendorItemId=4936222022)
 
 
 👍 [[샌디스크] USB메모리, 16GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=13747029958&vendorItemId=4936222022) 👌 
@@ -92,7 +92,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 5. 액센 USB3.0 메모리 SK30, 512GB
 
-![usb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/bidxqwpk/0d67f8d599e145c4b4734879a1fea02d.jpg)
+[![usb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/bidxqwpk/0d67f8d599e145c4b4734879a1fea02d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284366019&traceid=V0-153&itemId=18179382911&vendorItemId=85328448930)
 
 
 👍 [액센 USB3.0 메모리 SK30, 512GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284366019&traceid=V0-153&itemId=18179382911&vendorItemId=85328448930) 👌 
@@ -110,7 +110,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 6. 액센 SK30 USB 3.0, 256GB
 
-![usb TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/548294395819591-1c9cbd99-9539-440a-a278-c9c87b260532.jpg)
+[![usb TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/548294395819591-1c9cbd99-9539-440a-a278-c9c87b260532.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284366019&traceid=V0-153&itemId=3479129243&vendorItemId=71465437451)
 
 
 👍 [액센 SK30 USB 3.0, 256GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284366019&traceid=V0-153&itemId=3479129243&vendorItemId=71465437451) 👌 
@@ -128,7 +128,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 7. 샌디스크 블레이드 USB 플래시 드라이브 SDCZ50, 8GB
 
-![usb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d35d/bc0efa2c2c5a80d9aa108b1622cd1fbcc25967e04bdb508890bb7816bfb9.jpg)
+[![usb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d35d/bc0efa2c2c5a80d9aa108b1622cd1fbcc25967e04bdb508890bb7816bfb9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095102&vendorItemId=72389153467)
 
 
 👍 [샌디스크 블레이드 USB 플래시 드라이브 SDCZ50, 8GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095102&vendorItemId=72389153467) 👌 
@@ -146,7 +146,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 8. 뮤스트 웨이브링 블랙 USB메모리, 128GB
 
-![usb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2918272549538982-4be8a2ec-8e69-4c68-9ad0-809373c755fa.jpg)
+[![usb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2918272549538982-4be8a2ec-8e69-4c68-9ad0-809373c755fa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=226000492&traceid=V0-153&itemId=715928754&vendorItemId=4812838475)
 
 
 👍 [뮤스트 웨이브링 블랙 USB메모리, 128GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=226000492&traceid=V0-153&itemId=715928754&vendorItemId=4812838475) 👌 
@@ -164,7 +164,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 9. 플레이고 USB 메모리 P50, 64GB
 
-![usb TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2856661415931499-492a4b3b-a32b-4163-a464-d0c0659049c6.jpg)
+[![usb TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2856661415931499-492a4b3b-a32b-4163-a464-d0c0659049c6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5309101612&traceid=V0-153&itemId=7687093185&vendorItemId=74977375673)
 
 
 👍 [플레이고 USB 메모리 P50, 64GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5309101612&traceid=V0-153&itemId=7687093185&vendorItemId=74977375673) 👌 
@@ -182,7 +182,7 @@ USB는 범용 직렬 버스(Universal Serial Bus)의 약자로, 컴퓨터와 주
 
 ## 10. 샌디스크 USB3.0 플레어 플래시 드라이브, 128GB
 
-![usb TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9e94/258fc387d80f524c6a37b810cfe4d075d86aef55240c5987cffe7947e023.jpg)
+[![usb TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9e94/258fc387d80f524c6a37b810cfe4d075d86aef55240c5987cffe7947e023.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=19813082&traceid=V0-153&itemId=78863531&vendorItemId=70061638509)
 
 
 👍 [샌디스크 USB3.0 플레어 플래시 드라이브, 128GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=19813082&traceid=V0-153&itemId=78863531&vendorItemId=70061638509) 👌 

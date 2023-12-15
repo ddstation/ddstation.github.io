@@ -24,7 +24,7 @@ pin: true
 
 ## 1. 빅트랙 컨커러 68.58cm QHD 165Hz Fast IPS 1ms 게이밍 모니터 블랙, 27FM16501Q(일반)
 
-![게이밍모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7832985859620702-ff3560e5-577d-4cad-ae7d-d2d4801ab7cf.png)
+[![게이밍모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7832985859620702-ff3560e5-577d-4cad-ae7d-d2d4801ab7cf.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7510847225&traceid=V0-153&itemId=19679514384&vendorItemId=86784918720)
 
 
 👍 [빅트랙 컨커러 68.58cm QHD 165Hz Fast IPS 1ms 게이밍 모니터 블랙, 27FM16501Q(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7510847225&traceid=V0-153&itemId=19679514384&vendorItemId=86784918720) 👌 
@@ -42,7 +42,7 @@ pin: true
 
 ## 2. KOORUI 60.45cm FHD Fast IPS 리얼 165Hz 1ms(gtg) 게이밍 모니터 24E3 블랙 [프리싱크/G-sync 지원]
 
-![게이밍모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6ee9/d92ad524beee0e7ee563eee25c7f87253620769ec75a252b0f952c57e215.jpg)
+[![게이밍모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6ee9/d92ad524beee0e7ee563eee25c7f87253620769ec75a252b0f952c57e215.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434027963&traceid=V0-153&itemId=19315340231&vendorItemId=86457367323)
 
 
 👍 [KOORUI 60.45cm FHD Fast IPS 리얼 165Hz 1ms(gtg) 게이밍 모니터 24E3 블랙 [프리싱크/G-sync 지원] <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434027963&traceid=V0-153&itemId=19315340231&vendorItemId=86457367323) 👌 
@@ -60,7 +60,7 @@ pin: true
 
 ## 3. 한성컴퓨터 68.6cm FHD 1500R 리얼 165 게이밍 모니터, TFG27F16V(일반)
 
-![게이밍모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/598699526008349-0cc843f9-4996-47c0-b12d-63f561fc2dd0.jpg)
+[![게이밍모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/598699526008349-0cc843f9-4996-47c0-b12d-63f561fc2dd0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229430068&traceid=V0-153&itemId=727496667&vendorItemId=4839882965)
 
 
 👍 [한성컴퓨터 68.6cm FHD 1500R 리얼 165 게이밍 모니터, TFG27F16V(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229430068&traceid=V0-153&itemId=727496667&vendorItemId=4839882965) 👌 
@@ -78,7 +78,7 @@ pin: true
 
 ## 4. LG전자 울트라기어 게이밍모니터, 60.4cm, 24GN60R
 
-![게이밍모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/608989630069592-14b9c5d1-ae57-4e67-939c-6f0e466c401b.jpg)
+[![게이밍모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/608989630069592-14b9c5d1-ae57-4e67-939c-6f0e466c401b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272557&vendorItemId=84849444482)
 
 
 👍 [LG전자 울트라기어 게이밍모니터, 60.4cm, 24GN60R <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272557&vendorItemId=84849444482) 👌 
@@ -96,7 +96,7 @@ pin: true
 
 ## 5. [공식인증점] LG 32GR93U 32인치 4K 울트라기어 게이밍모니터 IPS 광시야각 144Hz 1ms UHD HDR10 HDMI 2.1
 
-![게이밍모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/33ff/c81e0bc58da73a5147e8fe2dd9280d98ec1502a97b4d09f1b7bd66ee0245.jpg)
+[![게이밍모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/33ff/c81e0bc58da73a5147e8fe2dd9280d98ec1502a97b4d09f1b7bd66ee0245.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7480821867&traceid=V0-153&itemId=19540255676&vendorItemId=86648554433)
 
 
 👍 [[공식인증점] LG 32GR93U 32인치 4K 울트라기어 게이밍모니터 IPS 광시야각 144Hz 1ms UHD HDR10 HDMI 2.1 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7480821867&traceid=V0-153&itemId=19540255676&vendorItemId=86648554433) 👌 
@@ -114,7 +114,7 @@ pin: true
 
 ## 6. 카멜 68.6cm FHD 게이밍 모니터, CM2710G
 
-![게이밍모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e4b1/926264e4850086c77acc7d3be710d00e3685035157a5408ab23384df0e79.jpg)
+[![게이밍모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e4b1/926264e4850086c77acc7d3be710d00e3685035157a5408ab23384df0e79.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6259845233&traceid=V0-153&itemId=12739377959&vendorItemId=79528630312)
 
 
 👍 [카멜 68.6cm FHD 게이밍 모니터, CM2710G <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6259845233&traceid=V0-153&itemId=12739377959&vendorItemId=79528630312) 👌 
@@ -132,7 +132,7 @@ pin: true
 
 ## 7. KOORUI 60.45cm FHD 게이밍 모니터 리얼 165Hz 1ms MPRT+프리싱크/G-sync 지원 24E4 블랙
 
-![게이밍모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dd41/bd843d06fff4bff80f6f6c583229c9fee7ffb3291dd976298251d73f124e.jpg)
+[![게이밍모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dd41/bd843d06fff4bff80f6f6c583229c9fee7ffb3291dd976298251d73f124e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7640065642&traceid=V0-153&itemId=20297247374&vendorItemId=87392018814)
 
 
 👍 [KOORUI 60.45cm FHD 게이밍 모니터 리얼 165Hz 1ms MPRT+프리싱크/G-sync 지원 24E4 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7640065642&traceid=V0-153&itemId=20297247374&vendorItemId=87392018814) 👌 
@@ -150,7 +150,7 @@ pin: true
 
 ## 8. 한성컴퓨터 60.4cm FHD 리얼 165 게이밍 모니터, ULTRON 2460G PLUS(일반)
 
-![게이밍모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/606196258451965-0845043a-6508-458a-a826-3a6c7173b81f.jpg)
+[![게이밍모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/606196258451965-0845043a-6508-458a-a826-3a6c7173b81f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6483178094&traceid=V0-153&itemId=14200748738&vendorItemId=81446303537)
 
 
 👍 [한성컴퓨터 60.4cm FHD 리얼 165 게이밍 모니터, ULTRON 2460G PLUS(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6483178094&traceid=V0-153&itemId=14200748738&vendorItemId=81446303537) 👌 
@@ -168,7 +168,7 @@ pin: true
 
 ## 9. 어드밴스원 68.58cm FHD 커브드 보더리스 165HZ 게이밍 모니터, M270CG165(무결점)
 
-![게이밍모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/596981022767457-a5c1d860-7421-4dc8-b191-b4f6b659924c.jpg)
+[![게이밍모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/596981022767457-a5c1d860-7421-4dc8-b191-b4f6b659924c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7573483215&traceid=V0-153&itemId=2496392870&vendorItemId=70489545681)
 
 
 👍 [어드밴스원 68.58cm FHD 커브드 보더리스 165HZ 게이밍 모니터, M270CG165(무결점) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7573483215&traceid=V0-153&itemId=2496392870&vendorItemId=70489545681) 👌 
@@ -186,7 +186,7 @@ pin: true
 
 ## 10. LG전자 울트라기어 게이밍모니터, 32GN50R
 
-![게이밍모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2210153078869956-4e6090e6-96b6-4d1a-98c2-fcf3354a5f7d.jpg)
+[![게이밍모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2210153078869956-4e6090e6-96b6-4d1a-98c2-fcf3354a5f7d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251497480&traceid=V0-153&itemId=18447261412&vendorItemId=85588146001)
 
 
 👍 [LG전자 울트라기어 게이밍모니터, 32GN50R <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251497480&traceid=V0-153&itemId=18447261412&vendorItemId=85588146001) 👌 

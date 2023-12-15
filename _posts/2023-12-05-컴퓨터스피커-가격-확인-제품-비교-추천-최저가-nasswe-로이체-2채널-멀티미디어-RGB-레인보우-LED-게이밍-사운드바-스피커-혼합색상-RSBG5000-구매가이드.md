@@ -29,7 +29,7 @@ pin: true
 
 ## 1. 로이체 2채널 멀티미디어 RGB 레인보우 LED 게이밍 사운드바 스피커, 혼합색상, RSB-G5000
 
-![컴퓨터스피커 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8577148180883334-6214138c-f165-45f7-963a-585573efba24.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8577148180883334-6214138c-f165-45f7-963a-585573efba24.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5409040011&traceid=V0-153&itemId=8128087176&vendorItemId=75416340095)
 
 
 👍 [로이체 2채널 멀티미디어 RGB 레인보우 LED 게이밍 사운드바 스피커, 혼합색상, RSB-G5000 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5409040011&traceid=V0-153&itemId=8128087176&vendorItemId=75416340095) 👌 
@@ -47,7 +47,7 @@ pin: true
 
 ## 2. 브리츠 사운드바, BA-R9(블랙)
 
-![컴퓨터스피커 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9455719363283416-223a912d-25da-42e2-b5db-3978bc4f318a.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9455719363283416-223a912d-25da-42e2-b5db-3978bc4f318a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1020744&traceid=V0-153&itemId=4313779&vendorItemId=3011294211)
 
 
 👍 [브리츠 사운드바, BA-R9(블랙) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1020744&traceid=V0-153&itemId=4313779&vendorItemId=3011294211) 👌 
@@ -65,7 +65,7 @@ pin: true
 
 ## 3. 맥스틸 USB 사운드바, SB-200(블랙)
 
-![컴퓨터스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2445467989555356-4585d93f-8dc0-4152-84be-f24f2cf63470.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2445467989555356-4585d93f-8dc0-4152-84be-f24f2cf63470.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=24568929&traceid=V0-153&itemId=95631350&vendorItemId=3171122003)
 
 
 👍 [맥스틸 USB 사운드바, SB-200(블랙) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=24568929&traceid=V0-153&itemId=95631350&vendorItemId=3171122003) 👌 
@@ -83,7 +83,7 @@ pin: true
 
 ## 4. 로이체 2채널 멀티미디어 RGB 레인보우 LED 게이밍 사운드바 스피커, 혼합색상, RSB-G5000
 
-![컴퓨터스피커 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8577148180883334-6214138c-f165-45f7-963a-585573efba24.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8577148180883334-6214138c-f165-45f7-963a-585573efba24.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5409040011&traceid=V0-153&itemId=8128087176&vendorItemId=75416340095)
 
 
 👍 [로이체 2채널 멀티미디어 RGB 레인보우 LED 게이밍 사운드바 스피커, 혼합색상, RSB-G5000 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5409040011&traceid=V0-153&itemId=8128087176&vendorItemId=75416340095) 👌 
@@ -101,7 +101,7 @@ pin: true
 
 ## 5. 브리츠 블루투스 올인원 사운드바 스피커 실버, BZ-SP20BT(실버)
 
-![컴퓨터스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1926441232919235-812a9409-4d54-40b4-8baf-64eddd39bbf0.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1926441232919235-812a9409-4d54-40b4-8baf-64eddd39bbf0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1919585159&traceid=V0-153&itemId=3259300943&vendorItemId=71246360475)
 
 
 👍 [브리츠 블루투스 올인원 사운드바 스피커 실버, BZ-SP20BT(실버) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1919585159&traceid=V0-153&itemId=3259300943&vendorItemId=71246360475) 👌 
@@ -119,7 +119,7 @@ pin: true
 
 ## 6. 브리츠 2채널 LED 컴퓨터 PC 게이밍 스피커 사운드바, BZ-SP300X, 블랙
 
-![컴퓨터스피커 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/28/10/1/1c5d00b2-31bc-4041-98f2-17ab22e4ac49.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/28/10/1/1c5d00b2-31bc-4041-98f2-17ab22e4ac49.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7227655664&traceid=V0-153&itemId=18331882647&vendorItemId=85810785808)
 
 
 👍 [브리츠 2채널 LED 컴퓨터 PC 게이밍 스피커 사운드바, BZ-SP300X, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7227655664&traceid=V0-153&itemId=18331882647&vendorItemId=85810785808) 👌 
@@ -137,7 +137,7 @@ pin: true
 
 ## 7. 삼성전자 PC스피커, SMS-M80U, 블랙
 
-![컴퓨터스피커 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ba92/bfd06b5d1a0bf11562fc472af8079626bb2e1945c3284402ef1ef47a9cc9.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ba92/bfd06b5d1a0bf11562fc472af8079626bb2e1945c3284402ef1ef47a9cc9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=25895384&traceid=V0-153&itemId=100759273&vendorItemId=85159897893)
 
 
 👍 [삼성전자 PC스피커, SMS-M80U, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=25895384&traceid=V0-153&itemId=100759273&vendorItemId=85159897893) 👌 
@@ -155,7 +155,7 @@ pin: true
 
 ## 8. 브리츠 2채널 사운드바, BA-R9(화이트)
 
-![컴퓨터스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2362336191394608-d9c597a5-f62e-4e26-ae0e-33e6999bb452.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2362336191394608-d9c597a5-f62e-4e26-ae0e-33e6999bb452.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1020744&traceid=V0-153&itemId=7079180667&vendorItemId=70918729526)
 
 
 👍 [브리츠 2채널 사운드바, BA-R9(화이트) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1020744&traceid=V0-153&itemId=7079180667&vendorItemId=70918729526) 👌 
@@ -173,7 +173,7 @@ pin: true
 
 ## 9. 로이체 2채널 멀티미디어 USB 사운드바 스피커, RSB-3000, 혼합색상
 
-![컴퓨터스피커 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8494595136713023-87c348c4-fa8d-4695-9fe3-8eb34d38f3dd.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8494595136713023-87c348c4-fa8d-4695-9fe3-8eb34d38f3dd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1449046510&traceid=V0-153&itemId=2495860349&vendorItemId=70489022509)
 
 
 👍 [로이체 2채널 멀티미디어 USB 사운드바 스피커, RSB-3000, 혼합색상 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1449046510&traceid=V0-153&itemId=2495860349&vendorItemId=70489022509) 👌 
@@ -191,7 +191,7 @@ pin: true
 
 ## 10. 크리에이티브 PEBBLE 2.0 스피커, MF1680, 블랙
 
-![컴퓨터스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/442390373476658-1420e92f-6a1d-46ae-ba01-d8c07ec32f14.jpg)
+[![컴퓨터스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/442390373476658-1420e92f-6a1d-46ae-ba01-d8c07ec32f14.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1916471525&traceid=V0-153&itemId=3253817621&vendorItemId=70472772615)
 
 
 👍 [크리에이티브 PEBBLE 2.0 스피커, MF1680, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1916471525&traceid=V0-153&itemId=3253817621&vendorItemId=70472772615) 👌 

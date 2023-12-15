@@ -31,7 +31,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 1. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253) 👌 
@@ -49,7 +49,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 2. 씨게이트 뉴 파이어쿠다 520 Gen4 NVMe SSD, STA028, 1024GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/28/14/9/8f10c7f1-4958-47f4-8412-cc7c53b0750d.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/28/14/9/8f10c7f1-4958-47f4-8412-cc7c53b0750d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7300099500&traceid=V0-153&itemId=18678767116&vendorItemId=85812988785)
 
 
 👍 [씨게이트 뉴 파이어쿠다 520 Gen4 NVMe SSD, STA028, 1024GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7300099500&traceid=V0-153&itemId=18678767116&vendorItemId=85812988785) 👌 
@@ -67,7 +67,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 3. 삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1b30/e20905ef7189a56efae34f5bdc9789c0820dd89c6a74f3493a2c15fdd0d1.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1b30/e20905ef7189a56efae34f5bdc9789c0820dd89c6a74f3493a2c15fdd0d1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=77937063047)
 
 
 👍 [삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=77937063047) 👌 
@@ -85,7 +85,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 4. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/accb/e144cd8f9ec92d818c7b99247336623e8e64afbfc7b361b85b7d235ece78.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/accb/e144cd8f9ec92d818c7b99247336623e8e64afbfc7b361b85b7d235ece78.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=87925597274)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=87925597274) 👌 
@@ -103,7 +103,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 5. Extreme Pro Portable SSD V2 외장하드 (SSDE81) (2TB), 상세페이지 참조, 상세페이지 참조
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee2f/0b09624a013fa155203ffa7ba57814c3731e8449967a27a78eadaa9d9333.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ee2f/0b09624a013fa155203ffa7ba57814c3731e8449967a27a78eadaa9d9333.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7693095457&traceid=V0-153&itemId=20577641784&vendorItemId=87695769593)
 
 
 👍 [Extreme Pro Portable SSD V2 외장하드 (SSDE81) (2TB), 상세페이지 참조, 상세페이지 참조 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7693095457&traceid=V0-153&itemId=20577641784&vendorItemId=87695769593) 👌 
@@ -121,7 +121,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 6. 마이크론 Crucial P3 Plus M.2 NVMe SSD 2TB 대원씨티에스
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f187/ef1c8f3d18096460dd2c6acc6460c997799f98513c3b21376f9fb3dc2ce7.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f187/ef1c8f3d18096460dd2c6acc6460c997799f98513c3b21376f9fb3dc2ce7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
 
 
 👍 [마이크론 Crucial P3 Plus M.2 NVMe SSD 2TB 대원씨티에스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557) 👌 
@@ -139,7 +139,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 7. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -157,7 +157,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 8. 기가바이트 SSD, GIGABYTE SSD 240GB, 240GB
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9067/82168fa2754e7e4ea88e833ef0c038eca81ddc7d80115e989bd5065cd022.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9067/82168fa2754e7e4ea88e833ef0c038eca81ddc7d80115e989bd5065cd022.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=86751665854)
 
 
 👍 [기가바이트 SSD, GIGABYTE SSD 240GB, 240GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=86751665854) 👌 
@@ -175,7 +175,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 9. WD My Passport SSD, 2TB, Red
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/j1gnc7th/615b3a3515944ae294b53c398bc1bd5e.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/j1gnc7th/615b3a3515944ae294b53c398bc1bd5e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588453&vendorItemId=72715533224)
 
 
 👍 [WD My Passport SSD, 2TB, Red <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588453&vendorItemId=72715533224) 👌 
@@ -193,7 +193,7 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. 이는 노트북, 태블�
 
 ## 10. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 

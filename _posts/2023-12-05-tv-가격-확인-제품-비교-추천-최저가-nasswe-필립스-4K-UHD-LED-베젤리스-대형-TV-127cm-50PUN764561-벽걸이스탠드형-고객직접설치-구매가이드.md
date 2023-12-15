@@ -33,7 +33,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 1. 필립스 4K UHD LED 베젤리스 대형 TV, 127cm, 50PUN7645/61, 벽걸이/스탠드형, 고객직접설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/22/13/6/e75b5e3d-0883-4148-ae61-1e580fada91e.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/22/13/6/e75b5e3d-0883-4148-ae61-1e580fada91e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7614903755&traceid=V0-153&itemId=20175943169&vendorItemId=87267851678)
 
 
 👍 [필립스 4K UHD LED 베젤리스 대형 TV, 127cm, 50PUN7645/61, 벽걸이/스탠드형, 고객직접설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7614903755&traceid=V0-153&itemId=20175943169&vendorItemId=87267851678) 👌 
@@ -51,7 +51,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 2. 프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 
 👍 [프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174) 👌 
@@ -69,7 +69,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 3. [고효율 1등급] 삼성전자 43인치 비즈니스 크리스탈 UHD 4K TV 전국무료설치, 방문설치, 스탠드형, 43인치/107.9cm
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cb80/d7e918e175ec181b0708b502f3e46e13aac9d1dcded2af8701d549cd304d.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cb80/d7e918e175ec181b0708b502f3e46e13aac9d1dcded2af8701d549cd304d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6579944552&traceid=V0-153&itemId=14802815761&vendorItemId=86626531512)
 
 
 👍 [[고효율 1등급] 삼성전자 43인치 비즈니스 크리스탈 UHD 4K TV 전국무료설치, 방문설치, 스탠드형, 43인치/107.9cm <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6579944552&traceid=V0-153&itemId=14802815761&vendorItemId=86626531512) 👌 
@@ -87,7 +87,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 4. TCL 안드로이드11 4K UHD TV, 128cm(50인치), 50P735, 스탠드형, 자가설치
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1965633124907103-113e4531-b9b8-431b-9d05-931bc00a53b6.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1965633124907103-113e4531-b9b8-431b-9d05-931bc00a53b6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089)
 
 
 👍 [TCL 안드로이드11 4K UHD TV, 128cm(50인치), 50P735, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089) 👌 
@@ -105,7 +105,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 5. LG 22년식 55인치(139cm)UQ7570 스마트TV 4K UHD 매장방문수령, 139cm(55인치)
 
-![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a972/9102d74b71e6075cc134fd45d361a5f1fa940b6660e551e4b3b1f6db74e3.jpg)
+[![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a972/9102d74b71e6075cc134fd45d361a5f1fa940b6660e551e4b3b1f6db74e3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141192269&traceid=V0-153&itemId=17929209103&vendorItemId=85091537979)
 
 
 👍 [LG 22년식 55인치(139cm)UQ7570 스마트TV 4K UHD 매장방문수령, 139cm(55인치) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141192269&traceid=V0-153&itemId=17929209103&vendorItemId=85091537979) 👌 
@@ -123,7 +123,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 6. 삼성전자 4K UHD Neo QLED TV QNB85, 214cm(85인치), KQ85QNB85AFXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/20/11/8/0053f3c0-115e-4624-99ae-690d9f10f9e7.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/20/11/8/0053f3c0-115e-4624-99ae-690d9f10f9e7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7209625553&traceid=V0-153&itemId=18241781098&vendorItemId=85388709962)
 
 
 👍 [삼성전자 4K UHD Neo QLED TV QNB85, 214cm(85인치), KQ85QNB85AFXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7209625553&traceid=V0-153&itemId=18241781098&vendorItemId=85388709962) 👌 
@@ -141,7 +141,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 7. 삼성전자 4K UHD 슬림핏 TV UA7000, 176cm(70인치), KU70UA7000FXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/710930450350763-18ba6095-ba32-4c0a-8b3a-f5a001745f15.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/710930450350763-18ba6095-ba32-4c0a-8b3a-f5a001745f15.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 
 👍 [삼성전자 4K UHD 슬림핏 TV UA7000, 176cm(70인치), KU70UA7000FXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159) 👌 
@@ -159,7 +159,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 8. 삼성전자 FHD LED TV, 108cm(43인치), KU43T5300AFXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/527147262785945-fe7f6182-54d1-4458-af44-c83c20a0be9f.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/527147262785945-fe7f6182-54d1-4458-af44-c83c20a0be9f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1445605820&traceid=V0-153&itemId=2490893719&vendorItemId=70484091785)
 
 
 👍 [삼성전자 FHD LED TV, 108cm(43인치), KU43T5300AFXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1445605820&traceid=V0-153&itemId=2490893719&vendorItemId=70484091785) 👌 
@@ -177,7 +177,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 9. 삼성전자 8K Neo QLED TV QNC800, 214cm(85인치), KQ85QNC800FXKR, 벽걸이형, 방문설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/mh5zwygt/6a49610de53741899f66932932790f7e.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/mh5zwygt/6a49610de53741899f66932932790f7e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7186501200&traceid=V0-153&itemId=18135226476&vendorItemId=85285829268)
 
 
 👍 [삼성전자 8K Neo QLED TV QNC800, 214cm(85인치), KQ85QNC800FXKR, 벽걸이형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7186501200&traceid=V0-153&itemId=18135226476&vendorItemId=85285829268) 👌 
@@ -195,7 +195,7 @@ TV는 시청자에게 휴식을 제공합니다. 좋아하는 프로그램을 �
 
 ## 10. 삼성전자 4K QLED TV QC67, 163cm(65인치), KQ65QC67AFXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/26/10/3/17438ea4-f805-49a7-b787-7176e29afb9c.jpg)
+[![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/26/10/3/17438ea4-f805-49a7-b787-7176e29afb9c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589252329&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
 
 
 👍 [삼성전자 4K QLED TV QC67, 163cm(65인치), KQ65QC67AFXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589252329&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404) 👌 

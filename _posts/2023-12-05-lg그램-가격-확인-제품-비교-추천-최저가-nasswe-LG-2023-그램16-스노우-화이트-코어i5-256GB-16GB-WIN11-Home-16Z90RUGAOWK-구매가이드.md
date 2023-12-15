@@ -37,7 +37,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 1. LG 2023 그램16, 스노우 화이트, 코어i5, 256GB, 16GB, WIN11 Home, 16Z90RU-GAOWK
 
-![lg그램 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4865789165246440-b6baca43-9455-4bd7-9348-6b0496a6a29b.jpg)
+[![lg그램 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4865789165246440-b6baca43-9455-4bd7-9348-6b0496a6a29b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7389889714&traceid=V0-153&itemId=19059391472&vendorItemId=86182358190)
 
 
 👍 [LG 2023 그램16, 스노우 화이트, 코어i5, 256GB, 16GB, WIN11 Home, 16Z90RU-GAOWK <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7389889714&traceid=V0-153&itemId=19059391472&vendorItemId=86182358190) 👌 
@@ -55,7 +55,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 2. LG 2023 그램14, 스노우 화이트, 코어i5, 512GB, 16GB, WIN11 Home, 14Z90R-GA56K
 
-![lg그램 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3506038098867813-9fcb57c3-b178-4cc7-a1ee-7a2e1ecc873a.jpg)
+[![lg그램 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3506038098867813-9fcb57c3-b178-4cc7-a1ee-7a2e1ecc873a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7413485582&traceid=V0-153&itemId=19214170179&vendorItemId=86331183389)
 
 
 👍 [LG 2023 그램14, 스노우 화이트, 코어i5, 512GB, 16GB, WIN11 Home, 14Z90R-GA56K <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7413485582&traceid=V0-153&itemId=19214170179&vendorItemId=86331183389) 👌 
@@ -73,7 +73,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 3. [당일출고] LG 그램 13세대 16GB 최신형 초경량 인강용 노트북 *사은품증정*, 스노우화이트, 15ZD95Q-GX56K, 코어i5, 512GB, Free DOS
 
-![lg그램 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/376f/0ef5ef90414c5f0660566cc246743e6f0222b3967fb0f0ed28af6e1787de.jpg)
+[![lg그램 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/376f/0ef5ef90414c5f0660566cc246743e6f0222b3967fb0f0ed28af6e1787de.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7462755073&traceid=V0-153&itemId=19455362361&vendorItemId=84518108492)
 
 
 👍 [[당일출고] LG 그램 13세대 16GB 최신형 초경량 인강용 노트북 *사은품증정*, 스노우화이트, 15ZD95Q-GX56K, 코어i5, 512GB, Free DOS <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7462755073&traceid=V0-153&itemId=19455362361&vendorItemId=84518108492) 👌 
@@ -91,7 +91,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 4. LG전자 2023 그램17 지포스 RTX 3050, 옵시디안 블랙, 코어i5, 512GB, 16GB, WIN11 Home, 17Z90R-EA5CK
 
-![lg그램 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4244287530077155-f5f4d2cb-a955-4fa8-9d3b-99e31b63f38f.jpg)
+[![lg그램 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4244287530077155-f5f4d2cb-a955-4fa8-9d3b-99e31b63f38f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685612593&traceid=V0-153&itemId=18111574559&vendorItemId=85263180006)
 
 
 👍 [LG전자 2023 그램17 지포스 RTX 3050, 옵시디안 블랙, 코어i5, 512GB, 16GB, WIN11 Home, 17Z90R-EA5CK <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685612593&traceid=V0-153&itemId=18111574559&vendorItemId=85263180006) 👌 
@@ -109,7 +109,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 5. LG전자 그램 15인치 16인치 17인치 512GB RAM16G 정품윈도우포함 노트북, 실버, 코어i7, 1TB, 16GB, WIN10 Home
 
-![lg그램 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/79d5/0a33839d3c624abd47ec20aa85b8b996fd84a74fdc235e380694ae9dcba5.jpg)
+[![lg그램 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/79d5/0a33839d3c624abd47ec20aa85b8b996fd84a74fdc235e380694ae9dcba5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7325501542&traceid=V0-153&itemId=15965062957&vendorItemId=83171283593)
 
 
 👍 [LG전자 그램 15인치 16인치 17인치 512GB RAM16G 정품윈도우포함 노트북, 실버, 코어i7, 1TB, 16GB, WIN10 Home <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7325501542&traceid=V0-153&itemId=15965062957&vendorItemId=83171283593) 👌 
@@ -127,7 +127,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 6. 삼성노트북 NT550XED-K78A 한컴오피스 증정 i7 윈도우11 가성비 사무용 대학생 인강용 광시야각 동영상 업무용 노트북추천, 그라파이트, 코어i7, 256GB, 16GB, WIN11 Home, NT550XED-K78AR
 
-![lg그램 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aad9/432a686b37aa361dc535c618c5d5024e2a46dfe0fa45aa267a2d1d0d7ad2.png)
+[![lg그램 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aad9/432a686b37aa361dc535c618c5d5024e2a46dfe0fa45aa267a2d1d0d7ad2.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4692708274&traceid=V0-153&itemId=13608105543&vendorItemId=81397022550)
 
 
 👍 [삼성노트북 NT550XED-K78A 한컴오피스 증정 i7 윈도우11 가성비 사무용 대학생 인강용 광시야각 동영상 업무용 노트북추천, 그라파이트, 코어i7, 256GB, 16GB, WIN11 Home, NT550XED-K78AR <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4692708274&traceid=V0-153&itemId=13608105543&vendorItemId=81397022550) 👌 
@@ -145,7 +145,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 7. LG전자 2023 그램15, 256GB, 스노우 화이트, 15Z90RU-GAOWK, 코어i5, WIN11 Home, 16GB
 
-![lg그램 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a214/478eb7bdd14eaa1bd799fe9c5fdc049affca4735404efe6629b0e66a0d1e.png)
+[![lg그램 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a214/478eb7bdd14eaa1bd799fe9c5fdc049affca4735404efe6629b0e66a0d1e.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148497&traceid=V0-153&itemId=20660237250&vendorItemId=86517583676)
 
 
 👍 [LG전자 2023 그램15, 256GB, 스노우 화이트, 15Z90RU-GAOWK, 코어i5, WIN11 Home, 16GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148497&traceid=V0-153&itemId=20660237250&vendorItemId=86517583676) 👌 
@@ -163,7 +163,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 8. LG전자 2023 울트라PC 15, 화이트, 라이젠3, 256GB, 8GB, WIN11 Home, 15U40R-GR36K
 
-![lg그램 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2815671788469835-595eab7a-909a-44f3-870f-6f5a669fb4b2.jpg)
+[![lg그램 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2815671788469835-595eab7a-909a-44f3-870f-6f5a669fb4b2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685487426&traceid=V0-153&itemId=19221013658&vendorItemId=86337786363)
 
 
 👍 [LG전자 2023 울트라PC 15, 화이트, 라이젠3, 256GB, 8GB, WIN11 Home, 15U40R-GR36K <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685487426&traceid=V0-153&itemId=19221013658&vendorItemId=86337786363) 👌 
@@ -181,7 +181,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 9. LG 그램 15인치 16인치 17인치 i5 i7 512GB 16G 일반 2IN1터치스크린 15U70P 16T90Q 17Z90Q 노트북 윈도우포함, 15인치 게이밍, WIN10 HOME, 16GB, 1TB, 코어i7, 실버
 
-![lg그램 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/79d5/0a33839d3c624abd47ec20aa85b8b996fd84a74fdc235e380694ae9dcba5.jpg)
+[![lg그램 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/79d5/0a33839d3c624abd47ec20aa85b8b996fd84a74fdc235e380694ae9dcba5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7016902053&traceid=V0-153&itemId=17265694501&vendorItemId=84436919764)
 
 
 👍 [LG 그램 15인치 16인치 17인치 i5 i7 512GB 16G 일반 2IN1터치스크린 15U70P 16T90Q 17Z90Q 노트북 윈도우포함, 15인치 게이밍, WIN10 HOME, 16GB, 1TB, 코어i7, 실버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7016902053&traceid=V0-153&itemId=17265694501&vendorItemId=84436919764) 👌 
@@ -199,7 +199,7 @@ LG 그램은 얇고 가벼운 디자인에도 불구하고, 키보드와 터치�
 
 ## 10. LG전자 2023 그램16 지포스 RTX 3050, 옵시디안 블랙, 코어i7, 512GB, 16GB, WIN11 Home, 16Z90R-EA7CK
 
-![lg그램 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4244327026814946-abaa24bd-57bf-4eba-9560-836fa584e873.jpg)
+[![lg그램 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4244327026814946-abaa24bd-57bf-4eba-9560-836fa584e873.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7181283325&traceid=V0-153&itemId=18111653454&vendorItemId=85263255548)
 
 
 👍 [LG전자 2023 그램16 지포스 RTX 3050, 옵시디안 블랙, 코어i7, 512GB, 16GB, WIN11 Home, 16Z90R-EA7CK <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7181283325&traceid=V0-153&itemId=18111653454&vendorItemId=85263255548) 👌 

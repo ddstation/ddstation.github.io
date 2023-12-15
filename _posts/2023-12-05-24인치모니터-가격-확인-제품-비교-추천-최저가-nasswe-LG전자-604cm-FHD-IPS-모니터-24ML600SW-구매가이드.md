@@ -27,7 +27,7 @@ pin: true
 
 ## 1. LG전자 60.4cm FHD IPS 모니터, 24ML600SW
 
-![24인치모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1366/09d22d48ca812532bd9773e1938c3aa52e71e30deef054edb94f439fb8ca.jpg)
+[![24인치모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1366/09d22d48ca812532bd9773e1938c3aa52e71e30deef054edb94f439fb8ca.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6653296662&traceid=V0-153&itemId=729215809&vendorItemId=82473546010)
 
 
 👍 [LG전자 60.4cm FHD IPS 모니터, 24ML600SW <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6653296662&traceid=V0-153&itemId=729215809&vendorItemId=82473546010) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. LG전자 60.4cm FHD 모니터, 24MQ400C
 
-![24인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2289724248557437-44665379-a414-4ace-bc4d-18a0096da3c0.jpg)
+[![24인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2289724248557437-44665379-a414-4ace-bc4d-18a0096da3c0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428)
 
 
 👍 [LG전자 60.4cm FHD 모니터, 24MQ400C <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. LG전자 60.4cm FHD 모니터, 24MQ400C
 
-![24인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2289724248557437-44665379-a414-4ace-bc4d-18a0096da3c0.jpg)
+[![24인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2289724248557437-44665379-a414-4ace-bc4d-18a0096da3c0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428)
 
 
 👍 [LG전자 60.4cm FHD 모니터, 24MQ400C <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 큐닉스 큐닉스그룹 60.4cm FHD 모니터, QX24SD REAL 75 HDR(일반)
 
-![24인치모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1827693198391825-6c9d7726-3fe5-45db-bc45-cba57786535f.jpg)
+[![24인치모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1827693198391825-6c9d7726-3fe5-45db-bc45-cba57786535f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7388350003&traceid=V0-153&itemId=19097154451&vendorItemId=86217929811)
 
 
 👍 [큐닉스 큐닉스그룹 60.4cm FHD 모니터, QX24SD REAL 75 HDR(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7388350003&traceid=V0-153&itemId=19097154451&vendorItemId=86217929811) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 어드밴스원 60.45cm 100HZ 2HDMI 모니터, AF-2408GH(무결점)
 
-![24인치모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3378588538935574-8ea5fe20-37e2-4c5c-b491-6c40ddbe68a0.jpg)
+[![24인치모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3378588538935574-8ea5fe20-37e2-4c5c-b491-6c40ddbe68a0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=221307135&traceid=V0-153&itemId=691074489&vendorItemId=4770692346)
 
 
 👍 [어드밴스원 60.45cm 100HZ 2HDMI 모니터, AF-2408GH(무결점) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=221307135&traceid=V0-153&itemId=691074489&vendorItemId=4770692346) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 디엑스 60.5cm (24인치) 75Hz 사무용 게이밍 컴퓨터 모니터 DX245HDMI, DX245HDMI(일반)
 
-![24인치모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f589/33a618d47cb17428996b382397c52e658458104723687a8250c598361454.jpg)
+[![24인치모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f589/33a618d47cb17428996b382397c52e658458104723687a8250c598361454.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7167086187&traceid=V0-153&itemId=17753993875&vendorItemId=84935810413)
 
 
 👍 [디엑스 60.5cm (24인치) 75Hz 사무용 게이밍 컴퓨터 모니터 DX245HDMI, DX245HDMI(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7167086187&traceid=V0-153&itemId=17753993875&vendorItemId=84935810413) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. 한성컴퓨터 60.4cm FHD 프리싱크 리얼75 모니터, ULTRON 2435V PLUS(일반)
 
-![24인치모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3299679164457196-722b6157-d947-4912-a157-957f9ecf531f.jpg)
+[![24인치모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3299679164457196-722b6157-d947-4912-a157-957f9ecf531f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470803985&traceid=V0-153&itemId=14123034880&vendorItemId=81369927414)
 
 
 👍 [한성컴퓨터 60.4cm FHD 프리싱크 리얼75 모니터, ULTRON 2435V PLUS(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470803985&traceid=V0-153&itemId=14123034880&vendorItemId=81369927414) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 주연테크 54.6cm FHD LED 모니터 100Hz, V22FX(일반)
 
-![24인치모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/671217612372165-b6d07ba8-e3fa-4a08-8fba-cb4adbedd0d0.jpg)
+[![24인치모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/671217612372165-b6d07ba8-e3fa-4a08-8fba-cb4adbedd0d0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410323525&traceid=V0-153&itemId=19198810280&vendorItemId=86316217055)
 
 
 👍 [주연테크 54.6cm FHD LED 모니터 100Hz, V22FX(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410323525&traceid=V0-153&itemId=19198810280&vendorItemId=86316217055) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. PIXELART PA2430W 화이트 75Hz FHD 24형 모니터 무결점, PA2430W(무결점)
 
-![24인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fd78/ec31e98e31cce3ebb131cedf1bb58f44170fbf4749319f25db9693924653.jpg)
+[![24인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fd78/ec31e98e31cce3ebb131cedf1bb58f44170fbf4749319f25db9693924653.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7601445245&traceid=V0-153&itemId=20109219326&vendorItemId=87204004813)
 
 
 👍 [PIXELART PA2430W 화이트 75Hz FHD 24형 모니터 무결점, PA2430W(무결점) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7601445245&traceid=V0-153&itemId=20109219326&vendorItemId=87204004813) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 디엑스 60.5cm (24인치) 75Hz 사무용 게이밍 컴퓨터 모니터 DX245HDMI, DX245HDMI(일반)
 
-![24인치모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f589/33a618d47cb17428996b382397c52e658458104723687a8250c598361454.jpg)
+[![24인치모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f589/33a618d47cb17428996b382397c52e658458104723687a8250c598361454.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7167086187&traceid=V0-153&itemId=17753993875&vendorItemId=84935810413)
 
 
 👍 [디엑스 60.5cm (24인치) 75Hz 사무용 게이밍 컴퓨터 모니터 DX245HDMI, DX245HDMI(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7167086187&traceid=V0-153&itemId=17753993875&vendorItemId=84935810413) 👌 

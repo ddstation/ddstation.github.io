@@ -33,7 +33,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 1. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)
+[![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253) 👌 
@@ -51,7 +51,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 2. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -69,7 +69,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 3. WD My Passport SSD WDBAGF0010BGY, 1TB, Gray
 
-![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/09/22/16/9/3afcc4a9-f619-4712-a90f-da58db6e67c2.jpg)
+[![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/09/22/16/9/3afcc4a9-f619-4712-a90f-da58db6e67c2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=3643663118&vendorItemId=71629177533)
 
 
 👍 [WD My Passport SSD WDBAGF0010BGY, 1TB, Gray <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=3643663118&vendorItemId=71629177533) 👌 
@@ -87,7 +87,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 4. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd1tb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd1tb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -105,7 +105,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 5. 씨게이트 One Touch HDD 외장하드STKY1000401 데이터복구+암호화 기능+파우치+USB케이블, 1TB, 실버
 
-![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050416189014045-8a5b12b9-1590-4946-9510-c0fb0e6eae5b.jpg)
+[![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050416189014045-8a5b12b9-1590-4946-9510-c0fb0e6eae5b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11966313760&vendorItemId=4686504170)
 
 
 👍 [씨게이트 One Touch HDD 외장하드STKY1000401 데이터복구+암호화 기능+파우치+USB케이블, 1TB, 실버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11966313760&vendorItemId=4686504170) 👌 
@@ -123,7 +123,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 6. 고성능 SanDisk USB 3.2 타입 A/C 휴대용 외장 솔리드 스테이트 드라이브 NVME 하드 디스크 SSD E30 E60 E61 E81 익스 프로 4TB 2TB 1TB 48, CHINA_E81 2TB
 
-![ssd1tb TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/deaa/0765fe662ce4b2a9d425cdad248874e98271c9b7c6a29a120e05c4600792.jpg)
+[![ssd1tb TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/deaa/0765fe662ce4b2a9d425cdad248874e98271c9b7c6a29a120e05c4600792.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7402831001&traceid=V0-153&itemId=19164424169&vendorItemId=87820537932)
 
 
 👍 [고성능 SanDisk USB 3.2 타입 A/C 휴대용 외장 솔리드 스테이트 드라이브 NVME 하드 디스크 SSD E30 E60 E61 E81 익스 프로 4TB 2TB 1TB 48, CHINA_E81 2TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7402831001&traceid=V0-153&itemId=19164424169&vendorItemId=87820537932) 👌 
@@ -141,7 +141,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 7. PNY CS900 SSD 1TB, 1024GB, SSD7CS900-1TB-RB
 
-![ssd1tb TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4c9b/6c2b673aa9d7f8b753eafc5f75cb0b126d0c340ed56e970edc695491e412.jpg)
+[![ssd1tb TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4c9b/6c2b673aa9d7f8b753eafc5f75cb0b126d0c340ed56e970edc695491e412.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6957086809&traceid=V0-153&itemId=16922767768&vendorItemId=84593587114)
 
 
 👍 [PNY CS900 SSD 1TB, 1024GB, SSD7CS900-1TB-RB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6957086809&traceid=V0-153&itemId=16922767768&vendorItemId=84593587114) 👌 
@@ -159,7 +159,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 8. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라
 
-![ssd1tb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)
+[![ssd1tb TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757) 👌 
@@ -177,7 +177,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 9. WD My Passport SSD, 2TB, Silver
 
-![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/de5obpej/446425392d0f4a29b23811d9aa2b851c.jpg)
+[![ssd1tb TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/de5obpej/446425392d0f4a29b23811d9aa2b851c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=12180961239&vendorItemId=86683635549)
 
 
 👍 [WD My Passport SSD, 2TB, Silver <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=12180961239&vendorItemId=86683635549) 👌 
@@ -195,7 +195,7 @@ SSD는 HDD에 비해 저소음입니다. HDD는 회전하는 디스크와 헤드
 
 ## 10. 이메이션 SSD, C321, 1TB
 
-![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7de6/0ddb4499070070d6239ed98c702ebea4fb7b97b880c7cb98e677a5f195fd.jpg)
+[![ssd1tb TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7de6/0ddb4499070070d6239ed98c702ebea4fb7b97b880c7cb98e677a5f195fd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5313758114&traceid=V0-153&itemId=7706810752&vendorItemId=84721720655)
 
 
 👍 [이메이션 SSD, C321, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5313758114&traceid=V0-153&itemId=7706810752&vendorItemId=84721720655) 👌 

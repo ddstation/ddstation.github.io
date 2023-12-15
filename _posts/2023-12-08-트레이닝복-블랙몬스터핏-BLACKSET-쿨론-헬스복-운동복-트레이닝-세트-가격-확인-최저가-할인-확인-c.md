@@ -45,7 +45,7 @@ pin: true
 
 ## 1. 블랙몬스터핏 BLACKSET 쿨론 헬스복 운동복 트레이닝 세트
 
-![트레이닝복 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/35de/677d67282d75995b839642444959f12a9d93056476ee3152b083582be6be.jpg)
+[![트레이닝복 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/35de/677d67282d75995b839642444959f12a9d93056476ee3152b083582be6be.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2155810376&traceid=V0-153&itemId=3661658435&vendorItemId=83447582813)
 
 
 👍 [블랙몬스터핏 BLACKSET 쿨론 헬스복 운동복 트레이닝 세트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2155810376&traceid=V0-153&itemId=3661658435&vendorItemId=83447582813) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 2. NY긴팔 남녀공용 트레이닝 세트(4color)
 
-![트레이닝복 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c10a/e377cc885638da69e6f3ea98db24479028fd00ae7e2de96628b1a579603a.jpg)
+[![트레이닝복 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c10a/e377cc885638da69e6f3ea98db24479028fd00ae7e2de96628b1a579603a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7657977781&traceid=V0-153&itemId=20393929077&vendorItemId=87476708590)
 
 
 👍 [NY긴팔 남녀공용 트레이닝 세트(4color) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7657977781&traceid=V0-153&itemId=20393929077&vendorItemId=87476708590) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 3. MP-캐나다 패딩퀼팅(기모세트)
 
-![트레이닝복 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cc53/416c073bf41bf14aabd4f659e7a369620cd8a497cd076dba272d38e75259.jpg)
+[![트레이닝복 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cc53/416c073bf41bf14aabd4f659e7a369620cd8a497cd076dba272d38e75259.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6653158703&traceid=V0-153&itemId=15252180357&vendorItemId=87892828272)
 
 
 👍 [MP-캐나다 패딩퀼팅(기모세트) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6653158703&traceid=V0-153&itemId=15252180357&vendorItemId=87892828272) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 4. 아디다스 남성 세레노 트랙수트 트레이닝 세트 블랙그레이 H28916
 
-![트레이닝복 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5d11/1ed7dc900ab6d21d80e9d193bb922484b189590455011ddda82643c2ef9e.jpg)
+[![트레이닝복 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5d11/1ed7dc900ab6d21d80e9d193bb922484b189590455011ddda82643c2ef9e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164104134&traceid=V0-153&itemId=18035315380&vendorItemId=85189782934)
 
 
 👍 [아디다스 남성 세레노 트랙수트 트레이닝 세트 블랙그레이 H28916 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164104134&traceid=V0-153&itemId=18035315380&vendorItemId=85189782934) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 5. PSG 맨시티 리버풀 바르셀로나 트레이닝복 세트 저지 겨울 가을 긴팔 집업 상하의
 
-![트레이닝복 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/00f3/7a26b361e78fd621ff58ea2ca1919a9a0d666672feab150771e3526234e6.png)
+[![트레이닝복 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/00f3/7a26b361e78fd621ff58ea2ca1919a9a0d666672feab150771e3526234e6.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709458686&traceid=V0-153&itemId=20662056389&vendorItemId=87734755779)
 
 
 👍 [PSG 맨시티 리버풀 바르셀로나 트레이닝복 세트 저지 겨울 가을 긴팔 집업 상하의 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709458686&traceid=V0-153&itemId=20662056389&vendorItemId=87734755779) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 6. 업클라스 남성용 슬림 일자핏 트레이닝 바지 a601
 
-![트레이닝복 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/qnyukyot/18f4bfd15a814524ab729a1e687094ae.jpg)
+[![트레이닝복 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/qnyukyot/18f4bfd15a814524ab729a1e687094ae.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2076273951&traceid=V0-153&itemId=7561507626&vendorItemId=74852151020)
 
 
 👍 [업클라스 남성용 슬림 일자핏 트레이닝 바지 a601 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2076273951&traceid=V0-153&itemId=7561507626&vendorItemId=74852151020) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 7. 보에리에 여성용 자수 레터링 반집업 맨투맨 + 조거 팬츠 세트
 
-![트레이닝복 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/gqnqsqg4/af1fc09c784642c8adb4cb3e8d5bfe2f.jpg)
+[![트레이닝복 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/gqnqsqg4/af1fc09c784642c8adb4cb3e8d5bfe2f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7563981074&traceid=V0-153&itemId=19933856166&vendorItemId=87033335113)
 
 
 👍 [보에리에 여성용 자수 레터링 반집업 맨투맨 + 조거 팬츠 세트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7563981074&traceid=V0-153&itemId=19933856166&vendorItemId=87033335113) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 8. 위즈아이 3종 트레이닝세트 남자 맨투맨 가을 WI068SET
 
-![트레이닝복 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e07f/68d6212ba03498a03d3323585af71cdd47ea325aec4c2a05f51c23e0c88f.jpg)
+[![트레이닝복 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e07f/68d6212ba03498a03d3323585af71cdd47ea325aec4c2a05f51c23e0c88f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2347341312&traceid=V0-153&itemId=4070640333&vendorItemId=80687191932)
 
 
 👍 [위즈아이 3종 트레이닝세트 남자 맨투맨 가을 WI068SET <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2347341312&traceid=V0-153&itemId=4070640333&vendorItemId=80687191932) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 9. 업클라스 남성용 사이드 레터링 슬림 일자 트레이닝 바지 a607
 
-![트레이닝복 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/8uoj26b5/4d9ae8fc75f1464f82cebb48be35184d.jpg)
+[![트레이닝복 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/8uoj26b5/4d9ae8fc75f1464f82cebb48be35184d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6055639228&traceid=V0-153&itemId=11114972732&vendorItemId=78394026747)
 
 
 👍 [업클라스 남성용 사이드 레터링 슬림 일자 트레이닝 바지 a607 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6055639228&traceid=V0-153&itemId=11114972732&vendorItemId=78394026747) 👌 
@@ -207,7 +207,7 @@ pin: true
 
 ## 10. 상상그이상 여성용 국내제작 기모안감 레터링 맨투맨 밴딩 조거팬츠 트레이닝 세트
 
-![트레이닝복 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1a4b/8fc7e84bd667f4355c97a92fe3924fe020bc0503e1737f5da66c8fe05b81.jpg)
+[![트레이닝복 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1a4b/8fc7e84bd667f4355c97a92fe3924fe020bc0503e1737f5da66c8fe05b81.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6100053730&traceid=V0-153&itemId=11425358363&vendorItemId=78825335105)
 
 
 👍 [상상그이상 여성용 국내제작 기모안감 레터링 맨투맨 밴딩 조거팬츠 트레이닝 세트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6100053730&traceid=V0-153&itemId=11425358363&vendorItemId=78825335105) 👌 

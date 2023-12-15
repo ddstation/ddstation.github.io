@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 삼성전자 갤럭시탭 A9 플러스 태블릿PC, 그라파이트, 64GB, Wi-Fi
 
-![태블릿 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/30/11/0/cb9ac9ae-34f4-43c2-8161-6a614b2e29b6.jpg)
+[![태블릿 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/30/11/0/cb9ac9ae-34f4-43c2-8161-6a614b2e29b6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7684881341&traceid=V0-153&itemId=20534621587&vendorItemId=87611466166)
 
 
 👍 [삼성전자 갤럭시탭 A9 플러스 태블릿PC, 그라파이트, 64GB, Wi-Fi <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7684881341&traceid=V0-153&itemId=20534621587&vendorItemId=87611466166) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. 아이뮤즈 안드로이드 뮤패드 GS10 태블릿 PC, Wi-Fi, 다크 그레이, 32GB
 
-![태블릿 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/10/18/14/3/b653cd4a-63d2-4961-b797-44c67b55a708.jpg)
+[![태블릿 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/10/18/14/3/b653cd4a-63d2-4961-b797-44c67b55a708.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6850871038&traceid=V0-153&itemId=16319921528&vendorItemId=83512023597)
 
 
 👍 [아이뮤즈 안드로이드 뮤패드 GS10 태블릿 PC, Wi-Fi, 다크 그레이, 32GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6850871038&traceid=V0-153&itemId=16319921528&vendorItemId=83512023597) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. 삼성전자 갤럭시탭 A7 Lite 8.7, 그레이, 64GB, LTE
 
-![태블릿 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8498027207320356-19909326-5bf7-40a7-9d03-f3ffe27370bf.jpg)
+[![태블릿 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8498027207320356-19909326-5bf7-40a7-9d03-f3ffe27370bf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6004708194&traceid=V0-153&itemId=11130086591&vendorItemId=78408686921)
 
 
 👍 [삼성전자 갤럭시탭 A7 Lite 8.7, 그레이, 64GB, LTE <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6004708194&traceid=V0-153&itemId=11130086591&vendorItemId=78408686921) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 레노버 P12 샤오신패드 태블릿, 4+128GB, 그레이 미개봉중국내수용
 
-![태블릿 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2501/3a7a7972abe51a870878b00fa127bf44fd5b3e514187d837d9006c0c43ae.jpg)
+[![태블릿 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2501/3a7a7972abe51a870878b00fa127bf44fd5b3e514187d837d9006c0c43ae.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7576756045&traceid=V0-153&itemId=19992621044&vendorItemId=87450141437)
 
 
 👍 [레노버 P12 샤오신패드 태블릿, 4+128GB, 그레이 미개봉중국내수용 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7576756045&traceid=V0-153&itemId=19992621044&vendorItemId=87450141437) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 아이패드 키보드 케이스 마그네틱형 시즌템 360도회전 트랙패드, 블랙
 
-![태블릿 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1727/ebadf1c5b07f91956198a68e1ffd4e5195f353c3bd5fbbe8703d5b3bf30a.jpg)
+[![태블릿 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1727/ebadf1c5b07f91956198a68e1ffd4e5195f353c3bd5fbbe8703d5b3bf30a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7359884041&traceid=V0-153&itemId=18959645551&vendorItemId=86237018164)
 
 
 👍 [아이패드 키보드 케이스 마그네틱형 시즌템 360도회전 트랙패드, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7359884041&traceid=V0-153&itemId=18959645551&vendorItemId=86237018164) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 아이패드 블루투스 한글 키보드 케이스 5세대 6세대 7세대 에어2 에어3 에어4 프로11 프로12.9, 아이패드10.5(프로&에어3), 실버
 
-![태블릿 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c34c/ad470e02244555633e6a893ba6cbf79e8d0257c999d653cd4e1b8e00dac6.jpg)
+[![태블릿 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c34c/ad470e02244555633e6a893ba6cbf79e8d0257c999d653cd4e1b8e00dac6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5025961871&traceid=V0-153&itemId=6744966448&vendorItemId=74037857521)
 
 
 👍 [아이패드 블루투스 한글 키보드 케이스 5세대 6세대 7세대 에어2 에어3 에어4 프로11 프로12.9, 아이패드10.5(프로&에어3), 실버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5025961871&traceid=V0-153&itemId=6744966448&vendorItemId=74037857521) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. 삼성전자 갤럭시탭 A7 Lite 8.7, 그레이, 32GB, Wi-Fi
 
-![태블릿 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/64e2/94a690fa40d578b1a90aa1f1682bd293c7bb83fd0c5390374e568901fcf5.jpg)
+[![태블릿 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/64e2/94a690fa40d578b1a90aa1f1682bd293c7bb83fd0c5390374e568901fcf5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6004708194&traceid=V0-153&itemId=10878989800&vendorItemId=84642431998)
 
 
 👍 [삼성전자 갤럭시탭 A7 Lite 8.7, 그레이, 32GB, Wi-Fi <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6004708194&traceid=V0-153&itemId=10878989800&vendorItemId=84642431998) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 삼성전자 갤럭시탭 S6 Lite SM-P610, 옥스포드 그레이, 128GB, Wi-Fi
 
-![태블릿 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9086805868259522-da2091fa-a2ff-4bd2-b382-a41a8aae0c86.jpg)
+[![태블릿 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9086805868259522-da2091fa-a2ff-4bd2-b382-a41a8aae0c86.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1488003706&traceid=V0-153&itemId=2554674261&vendorItemId=70547204151)
 
 
 👍 [삼성전자 갤럭시탭 S6 Lite SM-P610, 옥스포드 그레이, 128GB, Wi-Fi <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1488003706&traceid=V0-153&itemId=2554674261&vendorItemId=70547204151) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 베이직스 2023 베이직북S 10.1, White, 셀러론, 128GB, 8GB, WIN11 Pro, BB1022FW
 
-![태블릿 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/426680547861361-1a9f80aa-f1b5-4255-8813-66d8435a7ee6.jpg)
+[![태블릿 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/426680547861361-1a9f80aa-f1b5-4255-8813-66d8435a7ee6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7250974223&traceid=V0-153&itemId=18445032975&vendorItemId=85586013127)
 
 
 👍 [베이직스 2023 베이직북S 10.1, White, 셀러론, 128GB, 8GB, WIN11 Pro, BB1022FW <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7250974223&traceid=V0-153&itemId=18445032975&vendorItemId=85586013127) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 삼성전자 갤럭시탭 A9 플러스 태블릿PC, 그라파이트, 64GB, Wi-Fi
 
-![태블릿 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/30/11/0/cb9ac9ae-34f4-43c2-8161-6a614b2e29b6.jpg)
+[![태블릿 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/10/30/11/0/cb9ac9ae-34f4-43c2-8161-6a614b2e29b6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7684881341&traceid=V0-153&itemId=20534621587&vendorItemId=87611466166)
 
 
 👍 [삼성전자 갤럭시탭 A9 플러스 태블릿PC, 그라파이트, 64GB, Wi-Fi <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7684881341&traceid=V0-153&itemId=20534621587&vendorItemId=87611466166) 👌 

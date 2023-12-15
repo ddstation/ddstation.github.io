@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 리복 남성용 CL LEATHER MU 운동화 DV7172
 
-![리복운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/32332137986403-a4880a4e-44ac-406d-8092-1c7539e849d2.jpg)
+[![리복운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/32332137986403-a4880a4e-44ac-406d-8092-1c7539e849d2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453344009&traceid=V0-153&itemId=14018124213&vendorItemId=81266659472)
 
 
 👍 [리복 남성용 CL LEATHER MU 운동화 DV7172 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453344009&traceid=V0-153&itemId=14018124213&vendorItemId=81266659472) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 인디언 크로커다일 웨이브 남성 운동화 2682
 
-![리복운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/056c/0c63f54bf87069a0e7a4754d398b5225cfa8d974dddcb362d1e2b9f398c7.jpg)
+[![리복운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/056c/0c63f54bf87069a0e7a4754d398b5225cfa8d974dddcb362d1e2b9f398c7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6867326117&traceid=V0-153&itemId=16417499623&vendorItemId=83608430141)
 
 
 👍 [인디언 크로커다일 웨이브 남성 운동화 2682 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6867326117&traceid=V0-153&itemId=16417499623&vendorItemId=83608430141) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 리복 남성용 HIIT TR 운동화 G55468
 
-![리복운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2892852828513242-978fbf38-d651-4717-9cb6-3fa8dde6be83.jpg)
+[![리복운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2892852828513242-978fbf38-d651-4717-9cb6-3fa8dde6be83.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453006490&traceid=V0-153&itemId=14016150996&vendorItemId=81264704686)
 
 
 👍 [리복 남성용 HIIT TR 운동화 G55468 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453006490&traceid=V0-153&itemId=14016150996&vendorItemId=81264704686) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 리복 여성용 VECTOR SMASH SYN 운동화 FZ282
 
-![리복운동화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4196971337673197-1fc3e228-080a-4d8d-9081-9d70d139f279.jpg)
+[![리복운동화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4196971337673197-1fc3e228-080a-4d8d-9081-9d70d139f279.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453343434&traceid=V0-153&itemId=14018120837&vendorItemId=81266656081)
 
 
 👍 [리복 여성용 VECTOR SMASH SYN 운동화 FZ282 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453343434&traceid=V0-153&itemId=14018120837&vendorItemId=81266656081) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. CLJD 남자 여사 다이얼 운동화 240-290 런닝화 워킹화 스니커즈 트레킹화 신발 조깅화 워킹화
 
-![리복운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e712/4f55c98d6f58d3b780b2826c23cef05c59514d25a48faf8b0a2943c9ad0a.jpg)
+[![리복운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e712/4f55c98d6f58d3b780b2826c23cef05c59514d25a48faf8b0a2943c9ad0a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7225917432&traceid=V0-153&itemId=18322969242&vendorItemId=87298226896)
 
 
 👍 [CLJD 남자 여사 다이얼 운동화 240-290 런닝화 워킹화 스니커즈 트레킹화 신발 조깅화 워킹화 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7225917432&traceid=V0-153&itemId=18322969242&vendorItemId=87298226896) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 슬램 남성용 에어 운동화 + 사은품
 
-![리복운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7816/1964535d11869ab138030e3e3568a064dcfdeb99f31e2559480becf692a5.jpg)
+[![리복운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7816/1964535d11869ab138030e3e3568a064dcfdeb99f31e2559480becf692a5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7687070569&traceid=V0-153&itemId=20546274856&vendorItemId=87147971055)
 
 
 👍 [슬램 남성용 에어 운동화 + 사은품 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7687070569&traceid=V0-153&itemId=20546274856&vendorItemId=87147971055) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 리복 남성용 CL LTHR 운동화 FV9302
 
-![리복운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2891186892293411-6c35af48-9d1f-4fcb-b811-6f105b460697.jpg)
+[![리복운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2891186892293411-6c35af48-9d1f-4fcb-b811-6f105b460697.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453006011&traceid=V0-153&itemId=14016148597&vendorItemId=81264702046)
 
 
 👍 [리복 남성용 CL LTHR 운동화 FV9302 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453006011&traceid=V0-153&itemId=14016148597&vendorItemId=81264702046) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 리복 남성용 LIQUIFECT 90 운동화 FX168
 
-![리복운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/31385032519618-4964e8b6-86c5-4ac4-a6de-0e3ab2bb4009.jpg)
+[![리복운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/31385032519618-4964e8b6-86c5-4ac4-a6de-0e3ab2bb4009.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453006268&traceid=V0-153&itemId=14016149796&vendorItemId=81264703291)
 
 
 👍 [리복 남성용 LIQUIFECT 90 운동화 FX168 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453006268&traceid=V0-153&itemId=14016149796&vendorItemId=81264703291) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 페이퍼플레인 남녀공용 울트라 경량 쿠셔닝 런닝화 메쉬 운동화 PP1447
 
-![리복운동화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4160591192192291-67123d74-240f-48d0-8378-d9c47619e89d.jpg)
+[![리복운동화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4160591192192291-67123d74-240f-48d0-8378-d9c47619e89d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=38046596&traceid=V0-153&itemId=8025938860&vendorItemId=76882431845)
 
 
 👍 [페이퍼플레인 남녀공용 울트라 경량 쿠셔닝 런닝화 메쉬 운동화 PP1447 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=38046596&traceid=V0-153&itemId=8025938860&vendorItemId=76882431845) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 리복 남성용 DRIFTIUM 3.0 운동화 FX1829
 
-![리복운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2894335887286406-2cba01d5-92fe-4cd6-967c-6e4446341a38.jpg)
+[![리복운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2894335887286406-2cba01d5-92fe-4cd6-967c-6e4446341a38.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453344013&traceid=V0-153&itemId=14018124224&vendorItemId=81266659486)
 
 
 👍 [리복 남성용 DRIFTIUM 3.0 운동화 FX1829 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6453344013&traceid=V0-153&itemId=14018124224&vendorItemId=81266659486) 👌 

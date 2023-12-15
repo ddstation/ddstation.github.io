@@ -31,7 +31,7 @@ pin: true
 
 ## 1. [LG 24MP88HV] LED모니터 24인치 IPS초선명 패널 지원HDMI D-SUB 딱300대!, 24MP88HV
 
-![27인치모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/83c1/53c6192ab9f1229557848964bad48a91bcca97ed39b845ae9a9ab8beecc8.jpg)
+[![27인치모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/83c1/53c6192ab9f1229557848964bad48a91bcca97ed39b845ae9a9ab8beecc8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7725582547&traceid=V0-153&itemId=20745635916&vendorItemId=87816004005)
 
 
 👍 [[LG 24MP88HV] LED모니터 24인치 IPS초선명 패널 지원HDMI D-SUB 딱300대!, 24MP88HV <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7725582547&traceid=V0-153&itemId=20745635916&vendorItemId=87816004005) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 한성컴퓨터 68.5cm FHD 프리싱크 리얼 75 모니터, ULTRON 2758 PLUS(일반)
 
-![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2204277986470062-92390437-8d7a-4c79-a84e-2f07a0424c6e.jpg)
+[![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2204277986470062-92390437-8d7a-4c79-a84e-2f07a0424c6e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470812971&traceid=V0-153&itemId=14123071179&vendorItemId=81369963276)
 
 
 👍 [한성컴퓨터 68.5cm FHD 프리싱크 리얼 75 모니터, ULTRON 2758 PLUS(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470812971&traceid=V0-153&itemId=14123071179&vendorItemId=81369963276) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 디엑스 68.58cm FHD 초슬림 베젤리스 모니터, DX275HDMI(일반)-IPS 27인치
 
-![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/408e/ddda3189d749b7807d5c4397ea06dd5206002604f793eb0833b14362dc80.jpg)
+[![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/408e/ddda3189d749b7807d5c4397ea06dd5206002604f793eb0833b14362dc80.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7196457495&traceid=V0-153&itemId=18180471797&vendorItemId=84935807710)
 
 
 👍 [디엑스 68.58cm FHD 초슬림 베젤리스 모니터, DX275HDMI(일반)-IPS 27인치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7196457495&traceid=V0-153&itemId=18180471797&vendorItemId=84935807710) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 모니터 삼성 엘지 특가판매 LED LCD 19인치부터 27인치까지
 
-![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c784/8da71b6f8de2c46a583b9abe551a051f69122031c463203dcc75b508da9d.png)
+[![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c784/8da71b6f8de2c46a583b9abe551a051f69122031c463203dcc75b508da9d.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7075618739&traceid=V0-153&itemId=17585436502&vendorItemId=84751976115)
 
 
 👍 [모니터 삼성 엘지 특가판매 LED LCD 19인치부터 27인치까지 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7075618739&traceid=V0-153&itemId=17585436502&vendorItemId=84751976115) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 어드밴스원 68.58cm FHD 100hz 2HDMI 모니터, MV27KL(무결점)
 
-![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3299534897643261-c4d525f7-75e0-443d-8bdb-2c8663cad148.jpg)
+[![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3299534897643261-c4d525f7-75e0-443d-8bdb-2c8663cad148.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6233901061&traceid=V0-153&itemId=12544254994&vendorItemId=79812645105)
 
 
 👍 [어드밴스원 68.58cm FHD 100hz 2HDMI 모니터, MV27KL(무결점) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6233901061&traceid=V0-153&itemId=12544254994&vendorItemId=79812645105) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 주연테크 68cm FHD LED 모니터 100Hz, V27FX(일반)
 
-![27인치모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2206161680480901-8fa797cf-73ce-4f1c-b05a-c59fabe0ee29.jpg)
+[![27인치모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2206161680480901-8fa797cf-73ce-4f1c-b05a-c59fabe0ee29.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410135637&traceid=V0-153&itemId=19197882680&vendorItemId=86315316069)
 
 
 👍 [주연테크 68cm FHD LED 모니터 100Hz, V27FX(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410135637&traceid=V0-153&itemId=19197882680&vendorItemId=86315316069) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. KOORUI 1800R 커브드 QHD 리얼 144Hz/MPRT 1ms 게이밍 모니터 27E6QC 블랙 [초광시야각/전용게임시스템 탑재]
 
-![27인치모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1846/5ce0b8c81aa8d1b5b37415d65371a87ab9334b0446b509b601d0b9c3fcd3.png)
+[![27인치모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1846/5ce0b8c81aa8d1b5b37415d65371a87ab9334b0446b509b601d0b9c3fcd3.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7430118574&traceid=V0-153&itemId=19295613580&vendorItemId=86418613991)
 
 
 👍 [KOORUI 1800R 커브드 QHD 리얼 144Hz/MPRT 1ms 게이밍 모니터 27E6QC 블랙 [초광시야각/전용게임시스템 탑재] <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7430118574&traceid=V0-153&itemId=19295613580&vendorItemId=86418613991) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 디엑스 68.58cm FHD 초슬림 베젤리스 모니터, DX275HDMI(일반)-IPS 27인치
 
-![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/408e/ddda3189d749b7807d5c4397ea06dd5206002604f793eb0833b14362dc80.jpg)
+[![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/408e/ddda3189d749b7807d5c4397ea06dd5206002604f793eb0833b14362dc80.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7196457495&traceid=V0-153&itemId=18180471797&vendorItemId=84935807710)
 
 
 👍 [디엑스 68.58cm FHD 초슬림 베젤리스 모니터, DX275HDMI(일반)-IPS 27인치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7196457495&traceid=V0-153&itemId=18180471797&vendorItemId=84935807710) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 크로스오버 68.6cm FHD 오버파워 75 IPS 무결점 모니터, 27F79(무결점)
 
-![27인치모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1154363293606335-a268ecaf-de16-4e49-b073-e76c14d4df1e.jpg)
+[![27인치모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1154363293606335-a268ecaf-de16-4e49-b073-e76c14d4df1e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6793295028&traceid=V0-153&itemId=16010673717&vendorItemId=83215363336)
 
 
 👍 [크로스오버 68.6cm FHD 오버파워 75 IPS 무결점 모니터, 27F79(무결점) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6793295028&traceid=V0-153&itemId=16010673717&vendorItemId=83215363336) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 삼성전자 24인치 Fhd led모니터 50대한정 특가판매
 
-![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/98f5/f68e50a4652c26e618536472d26532b3c115902c2cf88ea9a4b4254acb8b.jpg)
+[![27인치모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/98f5/f68e50a4652c26e618536472d26532b3c115902c2cf88ea9a4b4254acb8b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7468985589&traceid=V0-153&itemId=19485162524&vendorItemId=87854831645)
 
 
 👍 [삼성전자 24인치 Fhd led모니터 50대한정 특가판매 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7468985589&traceid=V0-153&itemId=19485162524&vendorItemId=87854831645) 👌 

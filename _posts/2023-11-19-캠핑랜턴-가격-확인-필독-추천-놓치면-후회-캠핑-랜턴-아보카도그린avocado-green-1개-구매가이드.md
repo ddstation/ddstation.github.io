@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 캠핑 랜턴, 아보카도그린(avocado green), 1개
 
-![캠핑랜턴 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/12ee/1643b4704d48c5802c441577c9256ecfff1f657c3481dfca214c7322574d.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/12ee/1643b4704d48c5802c441577c9256ecfff1f657c3481dfca214c7322574d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7214380834&traceid=V0-153&itemId=18266007752&vendorItemId=85615557046)
 
 
 👍 [캠핑 랜턴, 아보카도그린(avocado green), 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7214380834&traceid=V0-153&itemId=18266007752&vendorItemId=85615557046) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. 충전 무선 방수 캠핑조명 휴대용 캠핑랜턴 걸이식 캠핑랜턴, 휴대용 충전식, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9252/c84a3af84591c01bdbffa0e7e4ab77e336527542367aa2bcfc89330b5072.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9252/c84a3af84591c01bdbffa0e7e4ab77e336527542367aa2bcfc89330b5072.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7425042824&traceid=V0-153&itemId=19271646652&vendorItemId=87078009400)
 
 
 👍 [충전 무선 방수 캠핑조명 휴대용 캠핑랜턴 걸이식 캠핑랜턴, 휴대용 충전식, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7425042824&traceid=V0-153&itemId=19271646652&vendorItemId=87078009400) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. 스위스마운틴 캠핑 충전랜턴 5400mAh, 그레이, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8937448360313644-45c74cc7-10f7-4393-a44d-7ef65517b28b.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8937448360313644-45c74cc7-10f7-4393-a44d-7ef65517b28b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=144935891&traceid=V0-153&itemId=420379271&vendorItemId=4033883928)
 
 
 👍 [스위스마운틴 캠핑 충전랜턴 5400mAh, 그레이, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=144935891&traceid=V0-153&itemId=420379271&vendorItemId=4033883928) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 라이프란스 충전식 LED 캠핑 괴물랜턴, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/05/20/11/4/b2d304d6-8c2d-4561-951a-2c3fbf8ffd9c.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/05/20/11/4/b2d304d6-8c2d-4561-951a-2c3fbf8ffd9c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6437346335&traceid=V0-153&itemId=13919711429&vendorItemId=81753445435)
 
 
 👍 [라이프란스 충전식 LED 캠핑 괴물랜턴, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6437346335&traceid=V0-153&itemId=13919711429&vendorItemId=81753445435) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 아재방 야외/캠핑 자바라 LED 스탠드 조명 18W, 1개, 블랙
 
-![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f5ac/fcd72dfb537f5f630c3b3a6933061a9b311e55a775f6f1b11f8fdb971723.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f5ac/fcd72dfb537f5f630c3b3a6933061a9b311e55a775f6f1b11f8fdb971723.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6868431123&traceid=V0-153&itemId=16422727876&vendorItemId=86078028135)
 
 
 👍 [아재방 야외/캠핑 자바라 LED 스탠드 조명 18W, 1개, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6868431123&traceid=V0-153&itemId=16422727876&vendorItemId=86078028135) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 캠핑 랜턴, 화이트(white), 1개
 
-![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0dc5/e51eeade3ae7144bd23e4fec78846402af37bc0510678df5d174c009f1e8.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0dc5/e51eeade3ae7144bd23e4fec78846402af37bc0510678df5d174c009f1e8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7214380834&traceid=V0-153&itemId=18266007748&vendorItemId=85615557058)
 
 
 👍 [캠핑 랜턴, 화이트(white), 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7214380834&traceid=V0-153&itemId=18266007748&vendorItemId=85615557058) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 캠퍼스파라다이스 충전식 아웃도어 LED 버터플라이 캠핑 랜턴, 화이트, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/nem3wgic/b8267f9c2e94480e97c8056a55962f22.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/nem3wgic/b8267f9c2e94480e97c8056a55962f22.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7470252770&traceid=V0-153&itemId=19491183630&vendorItemId=86600918677)
 
 
 👍 [캠퍼스파라다이스 충전식 아웃도어 LED 버터플라이 캠핑 랜턴, 화이트, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7470252770&traceid=V0-153&itemId=19491183630&vendorItemId=86600918677) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 스위스마운틴 캠핑 충전랜턴 5400mAh, 그레이, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8937448360313644-45c74cc7-10f7-4393-a44d-7ef65517b28b.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8937448360313644-45c74cc7-10f7-4393-a44d-7ef65517b28b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=144935891&traceid=V0-153&itemId=420379271&vendorItemId=4033883928)
 
 
 👍 [스위스마운틴 캠핑 충전랜턴 5400mAh, 그레이, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=144935891&traceid=V0-153&itemId=420379271&vendorItemId=4033883928) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 루맥스 LED 아웃도어 캠핑 랜턴 LC-100K, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/231631379715616-b6f8364d-19c2-46ce-928b-82974fab2124.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/231631379715616-b6f8364d-19c2-46ce-928b-82974fab2124.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7425397055&traceid=V0-153&itemId=19273029266&vendorItemId=5627574708)
 
 
 👍 [루맥스 LED 아웃도어 캠핑 랜턴 LC-100K, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7425397055&traceid=V0-153&itemId=19273029266&vendorItemId=5627574708) 👌 

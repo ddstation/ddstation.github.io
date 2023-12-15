@@ -19,7 +19,7 @@ pin: true
 
 ## 1. OVAL 컬러 사이드 테이블 쇼파테이블 티테이블 간이테이블, B타입(Low), NUUK WHITE
 
-![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c58c/76f808aa946b5df65cbbce018e14ffa5394279c6932b752babfbc2e52759.jpg)
+[![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c58c/76f808aa946b5df65cbbce018e14ffa5394279c6932b752babfbc2e52759.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7637248313&traceid=V0-153&itemId=20282853532&vendorItemId=87369354065)
 
 
 👍 [OVAL 컬러 사이드 테이블 쇼파테이블 티테이블 간이테이블, B타입(Low), NUUK WHITE <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7637248313&traceid=V0-153&itemId=20282853532&vendorItemId=87369354065) 👌 
@@ -37,7 +37,7 @@ pin: true
 
 ## 2. 메종드꼼마 벤티 소파 거실테이블 1200, 화이트
 
-![소파테이블 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/nycmsdry/d56f2317b7da46b39e2b5f52b562ceaa.jpg)
+[![소파테이블 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/nycmsdry/d56f2317b7da46b39e2b5f52b562ceaa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6504673417&traceid=V0-153&itemId=14337649179&vendorItemId=81582207613)
 
 
 👍 [메종드꼼마 벤티 소파 거실테이블 1200, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6504673417&traceid=V0-153&itemId=14337649179&vendorItemId=81582207613) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 3. RichMagic 유럽식 패션 아이디어 티테이블 사이드 테이블 62cm*40cm, 흰색
 
-![소파테이블 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5b91/1418110b71047bd6e430ace5e87d0cb715f1e5e746a82d8c749be58f11aa.jpg)
+[![소파테이블 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5b91/1418110b71047bd6e430ace5e87d0cb715f1e5e746a82d8c749be58f11aa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7521331389&traceid=V0-153&itemId=19727199051&vendorItemId=86833348808)
 
 
 👍 [RichMagic 유럽식 패션 아이디어 티테이블 사이드 테이블 62cm*40cm, 흰색 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7521331389&traceid=V0-153&itemId=19727199051&vendorItemId=86833348808) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 4. 스토리퍼니쳐 1200x600 터키쉬그린 7파이 LPM 지문방지 비스포크 테이블
 
-![소파테이블 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/p5mpynzk/8ef62814fefc42a3ac2532ec8e991224.jpg)
+[![소파테이블 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/p5mpynzk/8ef62814fefc42a3ac2532ec8e991224.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6107760652&traceid=V0-153&itemId=11491074885&vendorItemId=78766370821)
 
 
 👍 [스토리퍼니쳐 1200x600 터키쉬그린 7파이 LPM 지문방지 비스포크 테이블 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6107760652&traceid=V0-153&itemId=11491074885&vendorItemId=78766370821) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 5. 동서가구 소이 거실 리프트 테이블 1200 YCW039, 올블랙
 
-![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c606/4127cab5bbec53749f3c74e01ed66bcf743f96e427a8c72cd76faa80a991.jpg)
+[![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c606/4127cab5bbec53749f3c74e01ed66bcf743f96e427a8c72cd76faa80a991.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7679193277&traceid=V0-153&itemId=20506577757&vendorItemId=73214658349)
 
 
 👍 [동서가구 소이 거실 리프트 테이블 1200 YCW039, 올블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7679193277&traceid=V0-153&itemId=20506577757&vendorItemId=73214658349) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 6. 아이코닉하우스 애프터 글로우 사이드 테이블, 월넛
 
-![소파테이블 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/x09vnl8x/deb6cdd18a904391bfc872c0cad001c0.jpg)
+[![소파테이블 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/x09vnl8x/deb6cdd18a904391bfc872c0cad001c0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6536307226&traceid=V0-153&itemId=14536038491&vendorItemId=81778498401)
 
 
 👍 [아이코닉하우스 애프터 글로우 사이드 테이블, 월넛 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6536307226&traceid=V0-153&itemId=14536038491&vendorItemId=81778498401) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 7. 오브민 높이조절 사이드 쇼파 침대 이동식 노트북 테이블, 우드
 
-![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/30d3/6d5fadbf889dbd01b0005c559f26f5d9a3c7659bfee1c560afd9add8d537.png)
+[![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/30d3/6d5fadbf889dbd01b0005c559f26f5d9a3c7659bfee1c560afd9add8d537.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6410712642&traceid=V0-153&itemId=13746928080&vendorItemId=83202875946)
 
 
 👍 [오브민 높이조절 사이드 쇼파 침대 이동식 노트북 테이블, 우드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6410712642&traceid=V0-153&itemId=13746928080&vendorItemId=83202875946) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 8. 메종드꼼마 벤티 소파 거실테이블 1200, 우드화이트
 
-![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/wdv1ed9y/f6df678b61584473b343f0a8d346c4a6.jpg)
+[![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/wdv1ed9y/f6df678b61584473b343f0a8d346c4a6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6504673417&traceid=V0-153&itemId=14337649172&vendorItemId=81582207565)
 
 
 👍 [메종드꼼마 벤티 소파 거실테이블 1200, 우드화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6504673417&traceid=V0-153&itemId=14337649172&vendorItemId=81582207565) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 9. 큰언니마켓 lu quieto 북유럽 감성 프리미엄 라운드 사이드 테이블, 블랙
 
-![소파테이블 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e984/d89c276950b504de16a655e3fec28072a90b6f2ae1bdc005e667dc8e0f7b.png)
+[![소파테이블 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e984/d89c276950b504de16a655e3fec28072a90b6f2ae1bdc005e667dc8e0f7b.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7442735577&traceid=V0-153&itemId=19357232989&vendorItemId=86850175506)
 
 
 👍 [큰언니마켓 lu quieto 북유럽 감성 프리미엄 라운드 사이드 테이블, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7442735577&traceid=V0-153&itemId=19357232989&vendorItemId=86850175506) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 10. 블루밍홈 리웰 거실 테이블, 화이트
 
-![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/sbvluibm/1bc41863d8ca49d48f55983743aa5a61.jpg)
+[![소파테이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/sbvluibm/1bc41863d8ca49d48f55983743aa5a61.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6172505703&traceid=V0-153&itemId=12058581200&vendorItemId=79330712601)
 
 
 👍 [블루밍홈 리웰 거실 테이블, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6172505703&traceid=V0-153&itemId=12058581200&vendorItemId=79330712601) 👌 
